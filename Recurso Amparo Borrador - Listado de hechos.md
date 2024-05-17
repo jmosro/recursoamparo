@@ -2,7 +2,53 @@
 
 Detallo listado de acontecimientos sucedidos entre los años 2010 al 14-may-2024.
 
-## Parte 1. Dispositivos usados.
+## Parte 1. Medicamentos Epicrisis.
+
+### Primer internamiento.
+1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+2. Uso de policía, Fuerza Pública.
+3. Aproximado, 2 días en la UCI - Unidad de Cuidados Intensivos.
+4. Fecha ingreso: 12 mayo 2013.
+5. Fecha egreso: 07 junio 2013.
+6. Diagnóstico: Esquizofrenia Paranoide.
+7. Medicamentos en epicrisis.
+    - Trifluoperazina 10 mg VO HS.  Antipsicótico de primera generación.
+    - Difenhidramina 50 mg VO HS. Antihistamínico, para dormir.
+8. Otros medicamentos en citas de control psiquiatría.
+    - Biperideno Clorhidrato 4 tabletas/pastillas de 2 mg cada una. Contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
+
+### Segundo internamiento.
+1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+2. Uso de policía, OIJ - Organismo de Investigación Judicial.
+3. Aproximado, 3 días en la UCI - Unidad de Cuidados Intensivos.
+4. Fecha ingreso: 25 mayo 2017.
+5. Fecha egreso: 10 agosto 2017.
+6. Diagnóstico: Esquizofrenia Paranoide.
+7. Uso de TEC - Terapia Electroconvulsiva.
+8. Medicamentos en epicrisis.
+    - Trifluoperazina 20 mg VO HS. Antipsicótico de primera generación.
+    - Decanoato de Flufenazina 2 cc IM. Antipsicótico de primera generación.
+    - Lorazepam 1 mg VO BID. Benzodiacepina, para dormir, 2 veces al día.
+9. Otros medicamentos en citas de control psiquiatría.
+    - Biperideno Clorhidrato 4 tabletas/pastillas de 2 mg cada una. Contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
+
+### Tercer internamiento.
+1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+2. Sin uso de la policía.
+3. Aproximado, 2 días en la UCI - Unidad de Cuidados Intensivos.
+4. Fecha ingreso: 18 marzo 2020.
+5. Fecha egreso: 30 marzo 2020.
+6. Diagnóstico: Esquizofrenia Paranoide.
+7. Medicamentos en epicrisis.
+   - Risperidona 4 mg VO HS. Antipsicótico segunda generación.
+   - Difenhidramina 50 mg VO BID. Antihistamínico, para dormir, 2 veces al día.
+8. Otros medicamentos en citas de control psiquiatría.
+    - Biperideno Hidrocloruro 2 tabletas/pastillas de 2 mg cada una. Contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
+9. Otros medicamentos sin especificar.
+    - Uso de otros medicamentos drogas sin detallar nombres, inyectados en las madrugadas - noches.
+    - Uso de otros medicamentos drogas sin detallar nombres, en tabletas/pastillas de cada mes, dentro de Risperidona, Biperideno y Difenhidramina.
+
+## Parte 2. Dispositivos usados.
 
 1. Uso dispositivos tipo cámaras de 1 milímetro inscrustados en paredes de habitaciones, recargadas por luz solar y luz bombillos.
 2. Uso dispositivos tipo cámaras de 1 milímetro en anteojos personales.
@@ -34,7 +80,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 14-may-2024
 28. Uso dispositivos alarma tipo sonido pasivo en Centro Cívico por la Paz Heredia Guararí, durante las noches.
 29. Uso dispositivos cámara de vigilancia tipo domo en calle, casi frente a la casa, por parte de la Municipalidad de Heredia. Dispositivo dañado al mes de funcionamiento en el barrio.
 
-## Parte 2. Marcador psicótico.
+## Parte 3. Marcador psicótico.
 
 1. Marcador psicótico usando alimentos para que se ponga mala la comida en la noche y daños en artefactos de cocina como en el regulador de temperatura de la refrigeradora, olla arrocera, para registrar en su Inteligencia Artificial emociones obtenidos de los dispositivos en mi cabeza.
 2. Marcador psicótico usando apagones de electricidad en Guararí, pausas sin voces de los locutores y ruidos pasivos durante noticias, Canal 6 - Noticias Repretel, para la policía, como marcador delictivo de participación con los imputados.
