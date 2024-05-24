@@ -155,7 +155,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 14-may-2024
 
 1. Denunciar acceso a mi dormitorio forzando seguro de llave en llavin de mano, tranca de tipo picaporte, objetos de zapatos en la puerta, objetos sobre el llavin de mano de la puerta.
 2. Denunciar alteración de mi ubicación GPS real (Sistema de Posicionamiento Global) del SmartPhone Android en Google Maps (aplicación de rutas de caminos en mapas, registro de lugares visitados y carreteras transitadas) y Google Fit (aplicación para registro de actividades de ejercicio físico, donde se registra cantidad de pasos caminados usando mapas), en días convenientes para algunas personas.
-3. Denunciar mal funcionamiento y desactivación, de dispositivos biométricos de seguridad, tipo huella digital en mi Smartphone Android, en días convenientes para algunas personas.
+3. Denunciar mal funcionamiento y desactivación, de dispositivos o sensores biométricos de seguridad, tipo huella digital en mi Smartphone Android, en días convenientes para algunas personas, durante meses de meses.
 4. Denunciar anomalías en comunicaciones de la aplicación WhatsApp, recibo mensajes y llamadas en la misma aplicación, de números desconocidos de otros países, tratando de obtener información, algunos días parece que tengo bloqueado o interceptado mis comunicaciones con ciertos contactos.
 5. Denunciar llamadas recurrentes de una empresa llamada Monge, a mi número telefónico y de mis familiares para obtener información, en días convenientes para algunas personas.
 6. Denunciar software espía en mi dispositivo Smartphone Android, para obtener información de mi persona para las Inteligencias Artificiales de radios de Costa Rica, televisión Costarricense.
