@@ -173,3 +173,28 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 14-may-2024
 12. Denunciar sospecha de uso de dispositivo tipo tecnología de Smartphone con tecnología 5G, en el cielorraso de una habitación y ventana, como dispositivo grabador de vídeo, no es el dispositivo en los circuitos dentro de bombillos led, es otra forma de dispositivos.
 13. Denunciar funcionamiento anómalo de la página Web radios.co.cr, dónde parece que el tráfico DNS está interceptado para cambiar el funcionamiento de la página original, en dias convenientes para algunas personas, página Web: https://radios.co.cr/
 14. Denunciar funcionamiento tipo hostil en la aplicación VLC, aplicación para reproducir música, donde usando Inteligencia Artificial, personas reproducen interceptado mi tráfico para reproducir audios para hostigar y acosar, acerca México, a pesar de tomar acciones para evitar ese funcionamiento cuando les conviene a algunas personas.
+
+## Parte 9. Efectos secundarios de drogas desde el año 2020.
+
+- Pánico, agitación nerviosa por antipsicóticos.
+- Psicosis, pérdida de contacto temporal de mi alrededor.
+- Distonía focal o acatisia en los ojos, tipo EMDR.
+- Depresión.
+- Rumiar, tipo TOC - Transtorno Obsesivo Compulsivo.
+- Ansiedad.
+- Despersonalización y desrealización.
+- TDA - Transtorno Déficit de Atención.
+- TOC - Transtorno Obsesivo Compulsivo y Paranoias.
+- TID - Transtorno de Identidad Disociativo.
+- Espectro Autismo y odio.
+- Gusano musical por 2 horas seguido en las mañanas.
+- Gusano musical por unos minutos capaz de recordar varias canciones en tono y ritmo.
+- Hipertensión reactiva y excitado sexual.
+- Eyaculación durante las noches mientras duermo.
+- Hemorroides y falsa ciática.
+- Flashbacks y Dejá Vus. Sin sentimientos ni emociones.
+- Odio y drogas inyectadas, para tratar de que olvide lo que hacen.
+- Odio y autoridad, en medios de comunicación costarricenses.
+- Escalofríos en varias partes del cerebro y cuerpo.
+- Problemas de memoria, al recordar cosas vividas hace unos minutos.
+- Sueños largos que puedo recordar al despertar.
