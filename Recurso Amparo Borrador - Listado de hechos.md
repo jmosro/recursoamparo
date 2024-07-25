@@ -48,6 +48,13 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 14-may-2024
     - Uso de otros medicamentos drogas sin detallar nombres, inyectados en las madrugadas y noches.
     - Uso de otros medicamentos drogas sin detallar nombres, en tabletas/pastillas de cada mes, dentro de Risperidona, Biperideno y Difenhidramina.
 
+## Parte 2. Denuncias Judiciales. Expedientes Policía.
+
+1. Expediente: 	23-009077-0059-PE
+2. Expediente:	 17-001627-0058-PE
+3. Expediente: 	17-000953-0651-VD
+4. Expediente:	 17-000916-0651-VD
+
 ## Parte 2. Dispositivos usados.
 
 1. Uso dispositivos tipo cámaras de 1 milímetro inscrustados en paredes de habitaciones, recargadas por luz solar y luz bombillos.
