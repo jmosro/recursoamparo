@@ -156,6 +156,8 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 14-may-2024
 10. Denunciar sospecha de uso de mi número celular para Sinpe Móvil para actividades benéficas y actividades delictivas de personas, usando mi identidad sin consentimiento. Una vez, recibí un Sinpe Móvil de una mujer, según ella por mensaje de audio: "..., no me gusta perder, ...", le realicé el reintegro de dinero a la mujer, ese movimiento de dinero considero una doble intención de un grupo de personas.
 11. Denunciar que mi vecino me vigila, usando los diferentes tipos de dispositivos espías.
 12. Demandar judicial por violencia doméstica, económica, psicológica contra mi papá, por violencia contra mi mamá, recibiendo instrucciones de algunas personas para hacer esa violencia.
+13. Denunciar la participación de profesores del Tec de Cartago - Instituto Tecnológico de Costa Rica en el año 2011 y 2012, usando técnicas de hackeo hacía sus estudiantes para obtener información y usar esa información en Sitios Web para crear perfiles con esa información y publicidad, en complicidad de una cuadrilla de mujeres usando también esa información de mi y de los estudiantes que han hackeado en esos años, perfiles de juegos y amigos falsos en redes sociales. Un profesor usó un pseudónimo único en la internet que sólo yo sabía, para crear un perfil de una tortuga enojada referenciándome a mi y otros estudiantes hackeados por ellos, información única y sin compartir a nadie en mi dispositivo celular Nokia 2730 y computadora Desktop, usos en sus comentarios y usos de publicidad, perfiles eliminados tras mi primer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres en 2013.
+
 
 ## Parte 8. Vulnerar mis dispositivos personales.
 
