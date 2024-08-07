@@ -18,7 +18,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
     - Biperideno Clorhidrato 4 tabletas/pastillas de 2 mg cada una. Anticolinérgico, contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
 
 ### Segundo internamiento.
-1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley (CAPEMCOL).
 2. Uso de policía, OIJ - Organismo de Investigación Judicial.
 3. Aproximado, 3 días en la UCI - Unidad de Cuidados Intensivos.
 4. Fecha ingreso: 25 mayo 2017.
@@ -51,9 +51,9 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 ## Parte 2. Denuncias Judiciales. Expedientes Policía.
 
 1. Expediente: 	23-009077-0059-PE
-2. Expediente:	 17-001627-0058-PE
-3. Expediente: 	17-000953-0651-VD
-4. Expediente:	 17-000916-0651-VD
+2. Expediente:	 17-001627-0058-PE CAPEMCOL
+3. Expediente: 	17-000953-0651-VD CAPEMCOL
+4. Expediente:	 17-000916-0651-VD CAPEMCOL
 
 ## Parte 3. Dispositivos usados.
 
