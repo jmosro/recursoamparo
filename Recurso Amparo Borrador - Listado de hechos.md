@@ -24,7 +24,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 4. Fecha ingreso: 25 mayo 2017.
 5. Fecha egreso: 10 agosto 2017.
 6. Diagnóstico: Esquizofrenia Paranoide.
-7. Uso de TEC - Terapia Electroconvulsiva.
+7. Uso de TEC - Terapia Electroconvulsiva. 6 veces de sesión / días.
 8. Medicamentos en epicrisis.
     - Trifluoperazina 20 mg VO HS. Antipsicótico de primera generación.
     - Decanoato de Flufenazina 2 cc IM. Antipsicótico de primera generación.
