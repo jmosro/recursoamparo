@@ -97,6 +97,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 34. Uso de dispositivos de sirena carro de ambulancia / policía / bombero, a lo lejos en la misma comunidad de Guararí, uso de motocicleta sin silenciador en escape de humo, para alertar la presencia de personas utilizando los Sistemas de Inteligencias Artificial conectados a los diferentes tipos de dispositivos en la casa, como marcador psicótico de estados psicóticos provocados por el uso de drogas inyectadas en las madrugadas y noches, para ese mismo día.
 35. Uso de dispositivos para reproducir voces de personas y música durante mis poluciones nocturnas o eyaculaciones, cada cierto período de semanas transcurridos.
 36. Uso de dispositivos para provocar dolor en la superficie del pecho, debajo de la piel, en el lado izquierdo, arriba como a menos de 5 centímetros y derecha del pezón izquierdo sin llegar al centro del pecho, no provoca tipo calambre ni contracción del músculo del pecho como los otros dispositivos en todo el cuerpo, parece una punzada superficial, respirar lento diafragmático para contrarrestar, hasta detenerse.
+37. Uso de dispositivos en artefacto de aplanchar ropa - plancha, para sonar sonidos tipo ventilador u otro objetivo espía, sin estar conectado a la corriente eléctrica, ubicación sobre una mesa y ventana donde yo estoy mientras uso la laptop.
 
 ## Parte 6. Marcador psicótico.
 
