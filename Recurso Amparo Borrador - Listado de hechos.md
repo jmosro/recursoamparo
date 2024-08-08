@@ -48,14 +48,18 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
     - Uso de otros medicamentos drogas sin detallar nombres, inyectados en las madrugadas y noches.
     - Uso de otros medicamentos drogas sin detallar nombres, en tabletas/pastillas de cada mes, dentro de Risperidona, Biperideno y Difenhidramina.
 
-## Parte 2. Denuncias Judiciales. Expedientes Policía.
+## Parte 2. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mi persona.
 
 1. Expediente: 	23-009077-0059-PE
 2. Expediente:	 17-001627-0058-PE CAPEMCOL
 3. Expediente: 	17-000953-0651-VD CAPEMCOL
 4. Expediente:	 17-000916-0651-VD CAPEMCOL
 
-## Parte 3. Dispositivos usados.
+## Parte 3. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mis familiares.
+
+## Parte 4. Tipo personalidad según test psicológico al 2024.
+
+## Parte 5. Dispositivos usados.
 
 1. Uso dispositivos tipo cámaras de 1 milímetro inscrustados en paredes de habitaciones, recargadas por luz solar y luz bombillos.
 2. Uso dispositivos tipo cámaras de 1 milímetro en anteojos personales.
@@ -94,7 +98,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 35. Uso de dispositivos para reproducir voces de personas y música durante mis poluciones nocturnas o eyaculaciones, cada cierto período de semanas transcurridos.
 36. Uso de dispositivos para provocar dolor en la superficie del pecho, debajo de la piel, en el lado izquierdo, arriba como a menos de 5 centímetros y derecha del pezón izquierdo sin llegar al centro del pecho, no provoca tipo calambre ni contracción del músculo del pecho como los otros dispositivos en todo el cuerpo, parece una punzada superficial, respirar lento diafragmático para contrarrestar, hasta detenerse.
 
-## Parte 4. Marcador psicótico.
+## Parte 6. Marcador psicótico.
 
 1. Marcador psicótico usando alimentos para que se ponga mala la comida en la noche y daños en artefactos de cocina como en el regulador de temperatura de la refrigeradora, olla arrocera, para registrar en su Inteligencia Artificial emociones obtenidos de los dispositivos en mi cabeza.
 2. Marcador psicótico usando apagones de electricidad en Guararí, pausas sin voces de los locutores y ruidos pasivos durante noticias, Canal 6 - Noticias Repretel, para la policía, como marcador delictivo de participación con los imputados.
@@ -123,7 +127,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 25. Marcador psicótico usando drogas inyectadas en las madrugadas y noches, para sentir despersonalización y psicosis, ese mismo día, minutos antes de llover y durante la rayería.
 26. Marcador psicótico usando drogas inyectadas en las madrugadas y noches, para sentir despersonalización, ansiedad, tipo exceso de cortisol, durante ese día, para sentir que se mueve el piso, en mis nalgas, cuando estoy sentado en una silla, también registro en la Inteligencia Artificial de mi reacción durante temblores y erupciones volcánicas en Costa Rica.
 
-## Parte 5. CCSS.
+## Parte 7. CCSS.
 
 1. Listar nombres de las drogas inyectadas en nalgas y músculos deltoides de brazos, durante las madrugadas y noches. Información no está en la app del EDUS de la CCSS, en mi expediente personal digital accesible por mi persona en mi SmartPhone Android.
 2. Listar nombres de las drogas contenidas en las tabletas/pastillas de cada mes, ya que el medicamento me produce efectos secundarios, dudo sea el medicamento recetado por la psiquiatra. Medicamentos despachados por Farmacia del Hospital San Vicente de Paúl de Heredia, tienen la misma etiqueta de nombres que el EDUS, pero los efectos difieren cada ciertos meses. Información no está en la app del EDUS de la CCSS, en mi expediente personal digital accesible por mi persona en mi SmartPhone Android.
@@ -133,7 +137,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 6. Explicar por qué un Dictámen Médico del Hospital San Vicente de Paúl de Heredia, colocaron el medicamento Fluoxetina, ni en EDUS, ni en farmacia, ni las psiquiatras de citas de control, no me recetan ese medicamento durante 11 años de citas de control desde el año 2013. Información no está en la app del EDUS de la CCSS, en mi expediente personal digital accesible por mi persona en mi SmartPhone Android.
 7. Explicar por qué la Junta de Protección Social - JPS de la CCSS, utiliza mi información para elegir sus números de lotería, durante algunos meses.
 
-## Parte 6. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+## Parte 8. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
 
 1. Denunciar uso de sonidos pasivos y uso de personas de la policía principal una cuadrilla de mujeres, para joder, antes de cada internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Inicio de sonidos pasivos en el año 2012 durante universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, hasta primer internamiento en ese hospital en mayo del año 2013, continuación de sonidos pasivos y personas de la policía persiguiendo en años 2015 -  2016, hasta segundo internamiento en ese hospital en mayo del año 2017, continuación de sonidos pasivos para tercer internamiento en marzo del año 2020.
 2. Denunciar por qué el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, durante el internamiento 1 en mayo del año 2013 y el internamiento 2 en mayo del año  2017, no se me detalló los procesos judiciales durante cada internamiento, aclaratoria: no fue internamiento en Capemcol - Centro de Atención para Personas con Enfermedad Mental en Conflicto con la Ley, hubo varios procesos judiciales, mi percepción de ese Hospital para ocultar cosas de la policía, por que no les convenía a un grupo de personas tipo cuadrilla de la misma policía y no me quisieron detallar el proceso judicial.
@@ -141,7 +145,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 4. Explicar la relación de la modelo Miss Universo 2017 Helena Correa Usuga en 2017, coronada ganadora del concurso de belleza, durante mi segundo internamiento entre mayo a agosto de 2017, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, con una cuadrilla de mujeres de la policía que me persiguen durante la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica en 2011 y 2012.
 5. Explicar por qué el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres me realizaron Terapia Electroconvulsiva por depresión severa, en el segundo internamiento en 2017, si nunca en 3 internamientos desde 2013 hasta 2024, los psiquiatras me recetan antidepresivos. Información no está en la app del EDUS de la CCSS, en mi expediente personal digital accesible por mi persona en mi SmartPhone Android.
 
-## Parte 7. Medios de comunicación.
+## Parte 9. Medios de comunicación.
 
 1. Explicar por qué en el EDUS de mi expediente personal, no está la información del diagnóstico médico que hablan en la radio y televisión usando mi información de sacadas de muestras de sangre en las madrugadas y noches.
 2. Explicar por qué usan sin mi consentimiento, mi información obtenida por todos los tipos de dispositivos para películas.
@@ -150,7 +154,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 5. Explicar cuál Ley de Costa Rica les permite usar mi información para sus Inteligencias Artificiales en Televisión y Radio.
 6. Explicar el objetivo de por qué las radios de Costa Rica usando los dispositivos espías en casa de mis padres, acceso sin consentimiento a mis dispositivos personales y dispositivos en mi cabeza para electroencefalograma, muestran música perfecto dirigida con referencia a "amor", ocultando hechos que han ocurrido años anteriores desde el año 2010. Durante los años 2011 y 2012 durante mis estudios en la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica; también durante los años 2015, 2016 y 2017 durante mis primeros trabajos o empleos formales en el ámbito - sector laboral, en 3 empresas diferentes; y durante el año 2016 con un curso cursado de CCNA 1 Redes en la universidad Universidad de Costa Rica, de la sede San Pedro de Montes de Oca, San José. Ocurriendo: una cuadrilla de mujeres mostraban odio hacia mi persona y odio a unos señores llamados: Jose Alberto y Jose Pablo de TI - Tecnologías de la Información de una empresa, que tienen que ver con hackeos a mis datos, donde cuando la radio encendida en los buses y esos señores (Jose) de Tecnologías de la Información, mostraban información de esas mujeres, esas mujeres me odian y arremeten contra mi en varias formas de violencia. Creando un ambiente en los buses de guerra y en las paradas, donde a veces amo y odio a esas mujeres y a esos 2 señores de Tecnologías de la Información; esas mujeres me aman y odian, y esos señores de Tecnologías de la Información; esos señores Jose, de Tecnologías de la Información aman y odian a esas mujeres y a mi persona; donde mi percepción es de que esos señores "Jose", su objetivo oculto es de hacer una guerra y campo militar de Guararí. Donde las radios y televisoras de Costa Rica para sus Inteligencias Artificiales basado en la vida de de mi persona y esas cuadrilla de mujeres, como hipocresía de mostrar solo amor hacia mi persona, perfecto dirigida con sus dispositivos espiadores, ocultando hechos anteriores tipo mentiras, como forma de tapar el Sol con un dedo.
 
-## Parte 8. Policías.
+## Parte 10. Policías.
 
 1. Explicar por qué se desestimó mi demanda judicial en la policía OIJ - Organismo de Investigación Judicial, denuncia el 13 de diciembre de 2023, número 23-009077-0059-PE.
 2. Listar cada caso judicial y de la policía dónde se usa música y audios en la noche mientras duermo, usando sus diferentes tipos de dispositivos, usando mi dispositivo personal de Smartphone Android, dispositivos en mi cabeza para obtener acierto de actividad de electroencefalografía, en esos procesos judiciales.
@@ -168,7 +172,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 14. Explicar por qué en la Demanda Judicial Penal del Tec de Cartago - Instituto Tecnológico de Costa Rica, demanda número 17-001627-0058-PE, los profesores mencionados en esa denuncia judicial, mencionan haber sido estudiante de ellos y no recuerdan más de mi. No mencionan que ellos y ellas estaban recibiendo patronicio de ciertas fuerzas de Policía para realizar un seguimiento de tipo hackeo a mi persona en conjunto de algunos estudiantes que no se mencionan en esa denuncia penal en los años 2011 y 2012.  Que al año 2017 todavía esos estudiantes cursaban en esa universidad y saben quién soy, lo que pasaba en clases, en 2017 antes del segundo internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, y antes de la denuncia Judicial en el OIJ - Organismo de Investigación Judicial en Cartago, desde 2015, 2016 y 2017 volvieron a hacer lo mismo, de hackearmen y usar esa información con una cuadrilla de mujeres, drogas y delincuencia, las televisoras y radios de Costa Rica, las personas en redes sociales y videojuegos con información íntima y para publicidad basados en mi vida privada, obtenidos por los dispositivos espías en casa de mis padres, para fastidiar mi paciencia y tolerancia, tenía planes de reingresar a esa universidad pero no continúe después de presentarme personal el 25 de mayo de 2017, al Departamento de Orientación y Psicología de esa universidad, para saber cuál trámite tengo que hacer para el reingreso, día que se referencia de la amenaza de bomba en esa institución educativa.
 15. Denunciar que una cuadrilla de mujeres organizadas utilizaban e utilizan información obtenida por dispositivos espías y por hackeo a mis dispositivos personales desde el año 2010, manteniendose hasta este año 2024, 14 años, desde cuando era estudiante del VOCA de Heredia - Colegio Técnico Profesional de Heredia en el año 2008 iniciando en 2010 al cumplir 18 años y ser mayor de edad, para usar esa información contra mi mismo en sus acciones físicas, planes con otras personas y comentarios por boca, comentarios durante algunos años gritados en los buses donde yo voy de pasajero también, esa cuadrilla principal de mujeres y algunos hombres en organización de otras personas involucradas y uso de delincuentes usando esa información privada y pública, donde muestran odio hacia mi persona y yo les demuestro mi odio hacia ellos y ellas, acciones que se repiten cada cierto períodos de tiempo en años, finalizando hasta cada internamiento de mi persona en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, 3 períodos de tiempo en 3 internamientos en ese Hospital Psiquiátrico.
 
-## Parte 9. Vulnerar mis dispositivos personales.
+## Parte 11. Vulnerar mis dispositivos personales.
 
 1. Denunciar acceso a mi dormitorio forzando seguro de llave en llavin de mano, tranca de tipo picaporte, objetos de zapatos en la puerta, objetos sobre el llavin de mano de la puerta.
 2. Denunciar alteración de mi ubicación GPS real (Sistema de Posicionamiento Global) del SmartPhone Android en Google Maps (aplicación de rutas de caminos en mapas, registro de lugares visitados y carreteras transitadas) y Google Fit (aplicación para registro de actividades de ejercicio físico, donde se registra cantidad de pasos caminados usando mapas), en días convenientes para algunas personas.
@@ -185,7 +189,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 13. Denunciar funcionamiento anómalo de la página Web radios.co.cr, dónde parece que el tráfico DNS está interceptado para cambiar el funcionamiento de la página original, en dias convenientes para algunas personas, página Web: https://radios.co.cr/
 14. Denunciar funcionamiento tipo hostil en la aplicación VLC, aplicación para reproducir música, donde usando Inteligencia Artificial, personas reproducen interceptado mi tráfico para reproducir audios para hostigar y acosar, acerca México, a pesar de tomar acciones para evitar ese funcionamiento cuando les conviene a algunas personas.
 
-## Parte 10. Efectos secundarios de drogas desde el año 2020.
+## Parte 12. Efectos secundarios de drogas desde el año 2020.
 
 - Pánico, agitación nerviosa por antipsicóticos.
 - Psicosis, pérdida de contacto temporal de mi alrededor.
@@ -209,3 +213,6 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 - Escalofríos en varias partes del cerebro y cuerpo.
 - Problemas de memoria, al recordar cosas vividas hace unos minutos.
 - Sueños largos que puedo recordar al despertar.
+
+## Parte 13. Mis conclusiones.
+
