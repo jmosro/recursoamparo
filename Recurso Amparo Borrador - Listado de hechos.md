@@ -42,9 +42,12 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 7. Medicamentos en epicrisis.
    - Risperidona 4 mg VO HS. Antipsicótico segunda generación.
    - Difenhidramina 50 mg VO BID. Antihistamínico, para dormir, 2 veces al día.
-8. Otros medicamentos en citas de control psiquiatría.
+8. Medicamentos durante el internamiento.
+   - Inyección intramuscular de Haloperidol sólo por 3 días seguidos, cada día. 2 días de los 3 días, uso de inyección antihistamina para contrarrestar fuerte agitación nerviosa por el antipsicótico Haloperidol. No está en documento de referencia de epicrisis, desconozco las dosis. Antipsicótico de primera generación.
+   - Uso por unos días de pastillas/tabletas Trifluoperazina. No está en documento de referencia de epicrisis, desconozco las dosis. Antipsicótico de primera generación.
+9. Otros medicamentos en citas de control psiquiatría.
     - Biperideno Hidrocloruro 2 tabletas/pastillas de 2 mg cada una. Anticolinérgico, contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
-9. Otros medicamentos sin especificar.
+10. Otros medicamentos sin especificar.
     - Uso de otros medicamentos drogas sin detallar nombres, inyectados en las madrugadas y noches.
     - Uso de otros medicamentos drogas sin detallar nombres, en tabletas/pastillas de cada mes, dentro de Risperidona, Biperideno y Difenhidramina.
 
