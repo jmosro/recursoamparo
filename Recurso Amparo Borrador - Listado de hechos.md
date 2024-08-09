@@ -59,6 +59,10 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 ## Parte 4. Tipo personalidad según test psicológico al 2024.
 
+1. 16 personalidades del MBTI - Myers-Briggs Type Indicator.
+2. Personalidad: INFJ-T Abogado.
+3. Test realizado: Jueves, 11 de Julio de 2024. Mismo resultado de tipología personalidad, en el mismo test durante el 2023.
+
 ## Parte 5. Dispositivos usados.
 
 1. Uso dispositivos tipo cámaras de 1 milímetro inscrustados en paredes de habitaciones, recargadas por luz solar y luz bombillos.
