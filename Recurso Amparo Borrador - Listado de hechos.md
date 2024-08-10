@@ -53,10 +53,43 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 ## Parte 2. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mi persona.
 
-1. Expediente: 	23-009077-0059-PE
-2. Expediente:	 17-001627-0058-PE CAPEMCOL
-3. Expediente: 	17-000953-0651-VD CAPEMCOL
-4. Expediente:	 17-000916-0651-VD CAPEMCOL
+1. Expediente Registro Policía: 23-009077-0059-PE
+   - Fecha entrada: 19/12/2023
+   - Oficina judicial: FISCALÍA ADJUNTA DE HEREDIA (PENAL)
+   - Clase: PRINCIPAL - Investigación O.I.J.
+   - Resumen: Denuncia por experimentos de un grupo de personas humanos.
+
+2. Expediente Registro Policía: 17-001627-0058-PE CAPEMCOL
+   - Fecha entrada: 14/07/2017
+   - Oficina judicial: FISCALÍA ADJUNTA DE CARTAGO (PENAL)
+   - Clase: PRINCIPAL - Información del Organismo de Investigación Judicial
+   - Resumen: Amenaza de bomba y tiroteo en la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
+   - Referencia: Referencia de internamiento en CAPEMCOL - Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley, internamiento cumplido en Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+   - Otra información: No se me pidio declarar a los oficiales del OIJ - Organismo de Investigación Judicial, mi versión de lo sucedido, no tube acompañamiento de Oficiales en el proceso.
+   - Otra información: Estimo inicio dispositivos "chips" en mi cabeza durante las 6 sesiones / días de Terapia Electroconvulsiva en el mismo Hospital.
+
+3. Expediente Registro Policía: 17-000953-0651-VD CAPEMCOL
+   - Fecha entrada: 07/07/2017
+   - Oficina judicial: JUZGADO PENAL DE HEREDIA
+   - Clase: PRINCIPAL - Desestimación
+   - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
+
+4. Expediente Registro Policía: 17-000953-0651-VD CAPEMCOL
+   - Fecha entrada: 01/06/2017
+   - Oficina judicial: FISCALÍA ADJUNTA DE HEREDIA (PENAL)
+   - Clase: PRINCIPAL - Incompetencia o Remisión a otra Jurisdicción
+
+5. Expediente Registro Policía: 17-000953-0651-VD CAPEMCOL
+   - Fecha entrada: 31/05/2017
+   - Oficina judicial: JUZGADO CONTRA LA VIOLENCIA DOMÉSTICA DE HEREDIA
+   - Clase: PRINCIPAL - VIOLENCIA DOMÉSTICA
+   - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
+
+6. Expediente Registro Policía: 17-000916-0651-VD CAPEMCOL
+   - Fecha entrada: 25/05/2017
+   - Oficina judicial: JUZGADO CONTRA LA VIOLENCIA DOMÉSTICA DE HEREDIA
+   - Clase: PRINCIPAL - VIOLENCIA DOMÉSTICA
+   - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
 
 ## Parte 3. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mis familiares.
 
