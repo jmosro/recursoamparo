@@ -53,11 +53,11 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 ## Parte 2. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mi persona.
 
-Listado expedientes policía.
-2023 - 23-009077-0059-PE - Penal
-2017 - 17-001627-0058-PE CAPEMCOL - Penal
-2017 - 17-000953-0651-VD CAPEMCOL - Violencia Doméstica
-2017 - 17-000916-0651-VD CAPEMCOL - Violencia Doméstica
+0. Listado expedientes policía.
+   - 2023 - 23-009077-0059-PE - Penal
+   - 2017 - 17-001627-0058-PE CAPEMCOL - Penal
+   - 2017 - 17-000953-0651-VD CAPEMCOL - Violencia Doméstica
+   - 2017 - 17-000916-0651-VD CAPEMCOL - Violencia Doméstica
 
 1. Expediente Registro Policía: 23-009077-0059-PE
    - Fecha entrada: 19/12/2023
@@ -103,20 +103,20 @@ Listado expedientes policía.
 
 ## Parte 3. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mis familiares.
 
-Listado expedientes policía.
-2004 - 04-000176-0807-FC - Juzgado Contravencional
-2005 - 05-005382-0497-TR - Juzgado Transito
-2006 - Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Internamiento de mi papá
-2006 - 06-001476-0807-FC - Juzgado Contravencional
-2007 - 07-000012-0807-FC - Juzgado Contravencional
-2007 - 07-000218-0807-FC - Juzgado Contravencional
+0. Listado expedientes policía.
+   - 2004 - 04-000176-0807-FC - Juzgado Contravencional
+   - 2005 - 05-005382-0497-TR - Juzgado Transito
+   - 2006 - Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Internamiento de mi papá
+   - 2006 - 06-001476-0807-FC - Juzgado Contravencional
+   - 2007 - 07-000012-0807-FC - Juzgado Contravencional
+   - 2007 - 07-000218-0807-FC - Juzgado Contravencional
 
 
 
 
 ### Escuela Finca Guararí. 1998 (6 años edad) a 2004 (12 años edad).
 
-7. Expediente Registro Policía, copia papel.
+1. Expediente Registro Policía, copia papel.
    - Expediente número: 04-000176-0807-FC
    - Año: 2004. 12/02/2004
    - Oficina judicial: Juzgado Contravencional de Heredia.
@@ -124,7 +124,7 @@ Listado expedientes policía.
    - Otra información: Uso de la policía Fuerza Pública. Uso de un inspector del Ministerio de Salud.
    - Otra información: Yo, estudiante de 6to grado, de la Escuela Finca Guararí. 12 años edad.
 
-8. Expediente Registro Policía, copia papel.
+2. Expediente Registro Policía, copia papel.
    - Expediente número: 04-000176-0807-FC
    - Año: 2004. 26/08/2004
    - Oficina judicial: Juzgado Contravencional de Heredia.
@@ -134,7 +134,7 @@ Listado expedientes policía.
 
 ### Colegio Liceo Los Lagos. 2005 (13 años edad) a 2007 (15 años edad).
 
-9. Expediente Registro Policía, copia papel.
+3. Expediente Registro Policía, copia papel.
    - Expediente número: 04-000176-0807-FC
    - Año: 2005. 13/06/2005
    - Oficina judicial: Juzgado Contravencional de Heredia.
@@ -142,7 +142,7 @@ Listado expedientes policía.
    - Otra información: Sin uso de la policía Fuerza Pública.
    - Otra información: Yo, estudiante de 7mo grado, del Colegio Liceo Los Lagos. 13 años edad.
 
-10. Expediente Registro Policía, copia papel. Tránsito.
+4. Expediente Registro Policía, copia papel. Tránsito.
    - Expediente número boleta: 2005-036486
    - Expediente número: 05-005382-0497-TR
    - Año: 2005. 28/07/2005 Fecha accidente de tránsito.
@@ -171,14 +171,14 @@ Listado expedientes policía.
    - Otra información: Internamiento de mi papá en el Hospital del Trauma, del Instituto Nacional de Seguros, en la Uruca.
    - Otra información: Yo, estudiante de 7mo grado (2005 - 13 años), 8vo grado (2006 - 14 años), 9vo grado (2007 - 15 años), del Colegio Liceo Los Lagos.
 
-11. Expediente Registro Policía y CCSS - Caja Costarricense del Seguro Social, copia papel. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+5. Expediente Registro Policía y CCSS - Caja Costarricense del Seguro Social, copia papel. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
    - Año: 2005. Inicio psiquiatría papá: 20/01/2005
    - Año: 2006. Fecha internamiento papá: 22/03/2006 al 11/04/2006
    - Motivo internamiento psiquiátrico año 2006: Conflicto familiar, depresión e intento de suicidio, ingiriendo veneno líquido para matar cucarachas, hormigas y ratas, por parte de mi papá.
    - Otra información psiquiátrico año 2006: Uso de la policía Fuerza Pública.
    - Otra información psiquiátrico año 2006: Yo, estudiante de 8vo grado, del Colegio Liceo Los Lagos. 14 años edad.
 
-12. Expediente Registro Policía, copia papel.
+6. Expediente Registro Policía, copia papel.
    - Expediente judicial: 07-000012-0807-FC
    - Año: 2007. 08/01/2007 Fecha denuncia
    - Año: 2007. 16/02/2007 Fecha declaración imputada
@@ -189,7 +189,7 @@ Listado expedientes policía.
    - Otra información: Uso de la policía Fuerza Pública.
    - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
 
-13. Expediente Registro Policía, copia papel.
+7. Expediente Registro Policía, copia papel.
    - Expediente judicial: 07-000218-0807-FC
    - Año: 2007. 22/02/2007 Fecha denuncia
    - Año: 2007. 05/03/2007 Fecha declaración imputado
@@ -199,7 +199,7 @@ Listado expedientes policía.
    - Otra información: Uso de la policía Fuerza Pública.
    - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
 
-14. Expediente Registro Policía, copia papel.
+8. Expediente Registro Policía, copia papel.
    - Expediente judicial: 06-001476-0807-FC 2006
    - Año: 2007. 22-06-2007
    - Oficina judicial: Juzgado Contravencional de Heredia.
