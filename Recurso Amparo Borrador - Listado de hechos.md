@@ -53,6 +53,12 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 ## Parte 2. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mi persona.
 
+Listado expedientes policía.
+2023 - 23-009077-0059-PE - Penal
+2017 - 17-001627-0058-PE CAPEMCOL - Penal
+2017 - 17-000953-0651-VD CAPEMCOL - Violencia Doméstica
+2017 - 17-000916-0651-VD CAPEMCOL - Violencia Doméstica
+
 1. Expediente Registro Policía: 23-009077-0059-PE
    - Fecha entrada: 19/12/2023
    - Oficina judicial: FISCALÍA ADJUNTA DE HEREDIA (PENAL)
@@ -91,7 +97,130 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Clase: PRINCIPAL - VIOLENCIA DOMÉSTICA
    - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
 
+
+
+
+
 ## Parte 3. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mis familiares.
+
+Listado expedientes policía.
+2004 - 04-000176-0807-FC - Juzgado Contravencional
+2005 - 05-005382-0497-TR - Juzgado Transito
+2006 - Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Internamiento de mi papá
+2006 - 06-001476-0807-FC - Juzgado Contravencional
+2007 - 07-000012-0807-FC - Juzgado Contravencional
+2007 - 07-000218-0807-FC - Juzgado Contravencional
+
+
+
+
+### Escuela Finca Guararí. 1998 (6 años edad) a 2004 (12 años edad).
+
+7. Expediente Registro Policía, copia papel.
+   - Expediente número: 04-000176-0807-FC
+   - Año: 2004. 12/02/2004
+   - Oficina judicial: Juzgado Contravencional de Heredia.
+   - Resumen: Conflicto entre vecinos. Mi mamá y papá denuncian a una vecina. Palabras obscenas, daño a la vivienda.
+   - Otra información: Uso de la policía Fuerza Pública. Uso de un inspector del Ministerio de Salud.
+   - Otra información: Yo, estudiante de 6to grado, de la Escuela Finca Guararí. 12 años edad.
+
+8. Expediente Registro Policía, copia papel.
+   - Expediente número: 04-000176-0807-FC
+   - Año: 2004. 26/08/2004
+   - Oficina judicial: Juzgado Contravencional de Heredia.
+   - Resumen: Conflicto entre vecinos. Mi mamá y papá denuncian a una vecina. Palabras obscenas, daño a la vivienda. Audiencia de conciliación, juicio oral y público, en los Tribunales de Justicia de Heredia.
+   - Otra información: Sin uso de la policía Fuerza Pública.
+   - Otra información: Yo, estudiante de 6to grado, de la Escuela Finca Guararí. 12 años edad.
+
+### Colegio Liceo Los Lagos. 2005 (13 años edad) a 2007 (15 años edad).
+
+9. Expediente Registro Policía, copia papel.
+   - Expediente número: 04-000176-0807-FC
+   - Año: 2005. 13/06/2005
+   - Oficina judicial: Juzgado Contravencional de Heredia.
+   - Resumen: Conflicto entre vecinos. Conciliación masiva por amenazas. Mi mamá y papá denuncian a una vecina. Palabras obscenas, daño a la vivienda.
+   - Otra información: Sin uso de la policía Fuerza Pública.
+   - Otra información: Yo, estudiante de 7mo grado, del Colegio Liceo Los Lagos. 13 años edad.
+
+10. Expediente Registro Policía, copia papel. Tránsito.
+   - Expediente número boleta: 2005-036486
+   - Expediente número: 05-005382-0497-TR
+   - Año: 2005. 28/07/2005 Fecha accidente de tránsito.
+   - Año: 2005. 01/08/2005 Fecha declaración.
+   - Año: 2005. 11/11/2005 Fecha solicitud dictamen médico legal
+   - Año: 2006. 24/01/2006 Fecha audiencia dictamen médico legal
+   - Año: 2006. 26/01/2006 Fecha acta notificación fax
+   - Año: 2006. 09/02/2006 Fecha incompetencia por materia
+   - Año: 2006. 10/02/2006 Fecha acta notificación fax
+   - Año: 2006. 10/03/2006 Fecha envio documentación Poder Judicial, Ministerio Público de Heredia
+   - Año: 2006. 20/03/2006 Fecha pase auto, al Juez de Tránsito de Heredia
+   - Año: 2006. 03/04/2006 Fecha cédula citación
+   - Año: 2006. 27/04/2006 Fecha pase auto, al Ministerio Público de Heredia
+   - Año: 2006. 07/07/2006 Fecha petición envío documentos epicrisis del Hospital de Heredia, Registro Nacional, INS - Instituto Nacional de Seguros, a la Fiscalía Adjunta de Heredia
+   - Año: 2006. 24/08/2006 Fecha envío epicrisis del Hospital de Heredia
+   - Año: 2006. 02/11/2006 Fecha denuncia penal
+   - Año: 2006. 14/12/2006 Fecha declaración testigo
+   - Año: 2007. 19/02/2007 Fecha petición documentos a Complejo de Ciencias Médicas
+   - Año: 2007. 11/05/2007 Fecha entrega dictamen criminalístico
+   - Año: 2007. 23/10/2007 Fecha sobreseimiento a favor de la imputada
+   - Año: 2007. 23/10/2007 Fecha se ordena comunicar solicitud de sobreseimiento definitivo a la víctima
+   - Año: 2007. 06/11/2007 Fecha comunicación a fax, a abogada de papá de sobreseimiento a favor de la víctima
+   - Oficina judicial: Juzgado de Tránsito de Heredia.
+   - Resumen: Accidente de Tránsito. Atropello a mi papá al costado Este del Colegio Liceo Los Lagos.
+   - Otra información: Uso de la Policía de Tránsito el día del accidente.
+   - Otra información: Internamiento de mi papá en el Hospital del Trauma, del Instituto Nacional de Seguros, en la Uruca.
+   - Otra información: Yo, estudiante de 7mo grado (2005 - 13 años), 8vo grado (2006 - 14 años), 9vo grado (2007 - 15 años), del Colegio Liceo Los Lagos.
+
+11. Expediente Registro Policía y CCSS - Caja Costarricense del Seguro Social, copia papel. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+   - Año: 2005. Inicio psiquiatría papá: 20/01/2005
+   - Año: 2006. Fecha internamiento papá: 22/03/2006 al 11/04/2006
+   - Motivo internamiento psiquiátrico año 2006: Conflicto familiar, depresión e intento de suicidio, ingiriendo veneno líquido para matar cucarachas, hormigas y ratas, por parte de mi papá.
+   - Otra información psiquiátrico año 2006: Uso de la policía Fuerza Pública.
+   - Otra información psiquiátrico año 2006: Yo, estudiante de 8vo grado, del Colegio Liceo Los Lagos. 14 años edad.
+
+12. Expediente Registro Policía, copia papel.
+   - Expediente judicial: 07-000012-0807-FC
+   - Año: 2007. 08/01/2007 Fecha denuncia
+   - Año: 2007. 16/02/2007 Fecha declaración imputada
+   - Año: 2007. 07/03/2007 Fecha asignar abogada defensora al caso
+   - Año: 2007. 10/04/2007 Fecha acta notificación fax
+   - Oficina judicial: Juzgado Contravencional de Heredia.
+   - Resumen: Conflicto entre vecinos. Mi papá denuncia a una vecina. Exhibicionismo.
+   - Otra información: Uso de la policía Fuerza Pública.
+   - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
+
+13. Expediente Registro Policía, copia papel.
+   - Expediente judicial: 07-000218-0807-FC
+   - Año: 2007. 22/02/2007 Fecha denuncia
+   - Año: 2007. 05/03/2007 Fecha declaración imputado
+   - Ano: 2007. 18/10/2007 Fecha absolutoria número 169-07
+   - Oficina judicial: Juzgado Contravencional de Heredia.
+   - Resumen: Conflicto entre vecinos. Un vecino denuncia a mi papá. Amenazas.
+   - Otra información: Uso de la policía Fuerza Pública.
+   - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
+
+14. Expediente Registro Policía, copia papel.
+   - Expediente judicial: 06-001476-0807-FC 2006
+   - Año: 2007. 22-06-2007
+   - Oficina judicial: Juzgado Contravencional de Heredia.
+   - Resumen: Conflicto entre vecinos. Una vecina denuncia a mi mamá. Sentencia absolutoria número 103-2007. Denuncia amenazas, palabras obscenas. 
+   - Otra información: Sin uso de la policía Fuerza Pública.
+   - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años.
+
+### Colegio Técnico Profesional de Heredia - VOCA Heredia. 2008 (16 años edad) a 2010 (18 años edad).
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## Parte 4. Tipo personalidad según test psicológico al 2024.
 
