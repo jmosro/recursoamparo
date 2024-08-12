@@ -163,8 +163,8 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Año: 2007. 19/02/2007 Fecha petición documentos a Complejo de Ciencias Médicas
    - Año: 2007. 11/05/2007 Fecha entrega dictamen criminalístico
    - Año: 2007. 23/10/2007 Fecha sobreseimiento a favor de la imputada
-   - Año: 2007. 23/10/2007 Fecha se ordena comunicar solicitud de sobreseimiento definitivo a la víctima
-   - Año: 2007. 06/11/2007 Fecha comunicación a fax, a abogada de papá de sobreseimiento a favor de la víctima
+   - Año: 2007. 23/10/2007 Fecha se ordena comunicar solicitud de sobreseimiento definitivo a la imputada
+   - Año: 2007. 06/11/2007 Fecha comunicación a fax, a abogada de papá de sobreseimiento a favor de la imputada
    - Oficina judicial: Juzgado de Tránsito de Heredia.
    - Resumen: Accidente de Tránsito. Atropello a mi papá al costado Este del Colegio Liceo Los Lagos.
    - Otra información: Uso de la Policía de Tránsito el día del accidente.
