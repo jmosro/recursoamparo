@@ -53,6 +53,9 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 ## Parte 2. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mi persona.
 
+
+
+
 0. Listado expedientes policía.
    - 2023 - 23-009077-0059-PE - Penal
    - 2017 - 17-001627-0058-PE CAPEMCOL - Penal
@@ -100,19 +103,17 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 
 
-
 ## Parte 3. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mis familiares.
 
 0. Listado expedientes policía.
-   - 2004 - 04-000176-0807-FC - Juzgado Contravencional
-   - 2005 - 05-005382-0497-TR - Juzgado Transito
-   - 2006 - Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Internamiento de mi papá
-   - 2006 - 06-001476-0807-FC - Juzgado Contravencional
-   - 2007 - 07-000012-0807-FC - Juzgado Contravencional
-   - 2007 - 07-000218-0807-FC - Juzgado Contravencional
-
-
-
+   - 2004 - 04-000176-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
+   - 2005 - 05-005382-0497-TR - Juzgado Transito - Atropello de vehículo
+   - 2006 - Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres - Internamiento de mi papá - Intento de suidicio
+   - 2006 - 06-001476-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
+   - 2007 - 07-000012-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
+   - 2007 - 07-000218-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
+   - 2009 - 09-000409-0651-VD - Juzgado Violencia Doméstica - Violencia doméstica entre papá y mamá
+   - 2009 - 09-000440-0651-VD - Juzgado Violencia Doméstica - Violencia doméstica entre mamá y papá
 
 ### Escuela Finca Guararí. 1998 (6 años edad) a 2004 (12 años edad).
 
@@ -209,13 +210,24 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 ### Colegio Técnico Profesional de Heredia - VOCA Heredia. 2008 (16 años edad) a 2010 (18 años edad).
 
+9. Expediente Registro Policía, sin copia papel.
+   - Expediente judicial: 09-000409-0651-VD
+   - Año: 2009. Fecha Desconozco.
+   - Oficina judicial: Juzgado de Violencia Doméstica de Heredia.
+   - Resumen: Conflicto familiar. Violencia doméstica entre papá y mamá.
+   - Otra información: Documentos de papel, destruidos por mi mamá o papá.
+   - Otra información: Con medidas de protección Policía.
+   - Otra Información: No recuerdo casi lo que pasó días después, pero sí fragmentos de lo sucedido en la Comandancia de Policía de Heredia, ese día con mi papá y yo, estando en clases del VOCA de Heredia en ese momento.
 
-
-
-
-
-
-
+10. Expediente Registro Policía, copia papel.
+   - Expediente judicial: 09-000440-0651-VD
+   - Año: 2009. 05-03-2009 Fecha solicitud
+   - Año: 2009. 23-03-2009 Fecha comparecencia
+   - Oficina judicial: Juzgado de Violencia Doméstica de Heredia.
+   - Resumen: Conflicto familiar. Violencia doméstica entre mamá y papá. Proceso de medidas de protección en materia de violencia intrafamiliar.
+   - Otra información: Documentos de papel, incompletos.
+   - Otra información: Con medidas de protección Policía.
+   - Otra información: No recuerdo casi lo que pasó ese día y días después.
 
 
 
