@@ -51,10 +51,10 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
     - Uso de otros medicamentos drogas sin detallar nombres, inyectados en las madrugadas y noches.
     - Uso de otros medicamentos drogas sin detallar nombres, en tabletas/pastillas de cada mes, dentro de Risperidona, Biperideno y Difenhidramina.
 
+
+
+
 ## Parte 2. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mi persona.
-
-
-
 
 0. Listado expedientes policía.
    - 2023 - 23-009077-0059-PE - Penal
@@ -182,8 +182,10 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 6. Expediente Registro Policía, copia papel.
    - Expediente judicial: 07-000012-0807-FC
    - Año: 2007. 08/01/2007 Fecha denuncia
+   - Año: 2007. 24/01/2007 Fecha asignar abogada defensora al caso para el ofendido
+   - Año: 2007. 12/02/2007 Fecha orden de localización, citación o presentación
    - Año: 2007. 16/02/2007 Fecha declaración imputada
-   - Año: 2007. 07/03/2007 Fecha asignar abogada defensora al caso
+   - Año: 2007. 07/03/2007 Fecha asignar abogada defensora al caso para el ofendido, recibir notificaciones
    - Año: 2007. 10/04/2007 Fecha acta notificación fax
    - Oficina judicial: Juzgado Contravencional de Heredia.
    - Resumen: Conflicto entre vecinos. Mi papá denuncia a una vecina. Exhibicionismo.
@@ -193,6 +195,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 7. Expediente Registro Policía, copia papel.
    - Expediente judicial: 07-000218-0807-FC
    - Año: 2007. 22/02/2007 Fecha denuncia
+   - Año: 2007. 28/02/2007 Fecha orden de localización, citación o presentación
    - Año: 2007. 05/03/2007 Fecha declaración imputado
    - Ano: 2007. 18/10/2007 Fecha absolutoria número 169-07
    - Oficina judicial: Juzgado Contravencional de Heredia.
@@ -201,7 +204,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
 
 8. Expediente Registro Policía, copia papel.
-   - Expediente judicial: 06-001476-0807-FC 2006
+   - Expediente judicial: 06-001476-0807-FC Año: 2006
    - Año: 2007. 22-06-2007
    - Oficina judicial: Juzgado Contravencional de Heredia.
    - Resumen: Conflicto entre vecinos. Una vecina denuncia a mi mamá. Sentencia absolutoria número 103-2007. Denuncia amenazas, palabras obscenas. 
