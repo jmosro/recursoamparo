@@ -256,6 +256,24 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Yo, sin ser estudiante en alguna institución educativa. 21 años edad.
    - Otra información: Yo, internamiento en Hospital Psiquiátrico: Del 12-05-2013 al 07-06-2013.
 
+### Año 2018 - Sin eventos.
+
+1. Expediente Registro Policía, copia papel.
+   - Expediente judicial: 18-003751-0059-PE
+   - Año: 2018. 21-06-2018 Fecha denuncia penal
+   - Oficina judicial: Delegación Regional de Heredia.
+   - Resumen: Asalto. Un hermano es asaltado.
+   - Otra información: Yo, sin ser estudiante en alguna institución educativa. 26 años edad.
+
+### Año 2022 - IPEC Santo Domingo de Heredia. 2022 (30 años edad).
+
+1. Expediente Registro Policía, copia papel.
+   - Expediente judicial: 22-000621-0059-PE
+   - Año: 2022. 27-01-2022 Fecha denuncia penal
+   - Oficina judicial: Delegación Regional de Heredia.
+   - Resumen: Asalto. Un hermano es asaltado.
+   - Otra información: Yo, estudiante curso libre Inglés del IPEC Santo Domingo de Heredia. 30 años edad.
+
 ## Parte 4. Tipo personalidad según test psicológico al 2024.
 
 1. 16 personalidades del MBTI - Myers-Briggs Type Indicator.
