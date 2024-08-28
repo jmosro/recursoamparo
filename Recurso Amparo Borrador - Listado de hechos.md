@@ -51,9 +51,6 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
     - Uso de otros medicamentos drogas sin detallar nombres, inyectados en las madrugadas y noches.
     - Uso de otros medicamentos drogas sin detallar nombres, en tabletas/pastillas de cada mes, dentro de Risperidona, Biperideno y Difenhidramina.
 
-
-
-
 ## Parte 2. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mi persona.
 
 0. Listado expedientes policía.
@@ -100,9 +97,6 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Clase: PRINCIPAL - VIOLENCIA DOMÉSTICA
    - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
 
-
-
-
 ## Parte 3. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mis familiares.
 
 0. Listado expedientes policía.
@@ -135,7 +129,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 ### Colegio Liceo Los Lagos. 2005 (13 años edad) a 2007 (15 años edad).
 
-3. Expediente Registro Policía, copia papel.
+1. Expediente Registro Policía, copia papel.
    - Expediente número: 04-000176-0807-FC
    - Año: 2005. 13/06/2005
    - Oficina judicial: Juzgado Contravencional de Heredia.
@@ -143,7 +137,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Sin uso de la policía Fuerza Pública.
    - Otra información: Yo, estudiante de 7mo grado, del Colegio Liceo Los Lagos. 13 años edad.
 
-4. Expediente Registro Policía, copia papel. Tránsito.
+2. Expediente Registro Policía, copia papel. Tránsito.
    - Expediente número boleta: 2005-036486
    - Expediente número: 05-005382-0497-TR
    - Año: 2005. 28/07/2005 Fecha accidente de tránsito.
@@ -172,14 +166,14 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Internamiento de mi papá en el Hospital del Trauma, del Instituto Nacional de Seguros, en la Uruca.
    - Otra información: Yo, estudiante de 7mo grado (2005 - 13 años), 8vo grado (2006 - 14 años), 9vo grado (2007 - 15 años), del Colegio Liceo Los Lagos.
 
-5. Expediente Registro Policía y CCSS - Caja Costarricense del Seguro Social, copia papel. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+3. Expediente Registro Policía y CCSS - Caja Costarricense del Seguro Social, copia papel. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
    - Año: 2005. Inicio psiquiatría papá: 20/01/2005
    - Año: 2006. Fecha internamiento papá: 22/03/2006 al 11/04/2006
    - Motivo internamiento psiquiátrico año 2006: Conflicto familiar, depresión e intento de suicidio, ingiriendo veneno líquido para matar cucarachas, hormigas y ratas, por parte de mi papá.
    - Otra información psiquiátrico año 2006: Uso de la policía Fuerza Pública.
    - Otra información psiquiátrico año 2006: Yo, estudiante de 8vo grado, del Colegio Liceo Los Lagos. 14 años edad.
 
-6. Expediente Registro Policía, copia papel.
+4. Expediente Registro Policía, copia papel.
    - Expediente judicial: 07-000012-0807-FC
    - Año: 2007. 08/01/2007 Fecha denuncia
    - Año: 2007. 24/01/2007 Fecha asignar abogada defensora al caso para el ofendido
@@ -192,7 +186,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Uso de la policía Fuerza Pública.
    - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
 
-7. Expediente Registro Policía, copia papel.
+5. Expediente Registro Policía, copia papel.
    - Expediente judicial: 07-000218-0807-FC
    - Año: 2007. 22/02/2007 Fecha denuncia
    - Año: 2007. 28/02/2007 Fecha orden de localización, citación o presentación
@@ -203,7 +197,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Uso de la policía Fuerza Pública.
    - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
 
-8. Expediente Registro Policía, copia papel.
+6. Expediente Registro Policía, copia papel.
    - Expediente judicial: 06-001476-0807-FC Año: 2006
    - Año: 2007. 22-06-2007
    - Oficina judicial: Juzgado Contravencional de Heredia.
@@ -213,8 +207,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 ### Colegio Técnico Profesional de Heredia - VOCA Heredia. 2008 (16 años edad) a 2010 (18 años edad).
 
-9. Expediente Registro Policía, sin copia papel.
-
+1. Expediente Registro Policía, sin copia papel.
    - Expediente judicial: 09-000409-0651-VD
    - Año: 2009. Fecha Desconozco.
    - Oficina judicial: Juzgado de Violencia Doméstica de Heredia.
@@ -223,8 +216,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Con medidas de protección Policía.
    - Otra Información: No recuerdo casi lo que pasó días después, pero sí fragmentos de lo sucedido en la Comandancia de Policía de Heredia, ese día con mi papá y yo, estando en clases del VOCA de Heredia en ese momento.
 
-10. Expediente Registro Policía, copia papel.
-
+2. Expediente Registro Policía, copia papel.
    - Expediente judicial: 09-000440-0651-VD
    - Año: 2009. 05-03-2009 Fecha solicitud
    - Año: 2009. 23-03-2009 Fecha comparecencia
@@ -234,11 +226,6 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Con medidas de protección Policía.
    - Otra información: No recuerdo casi lo que pasó ese día y días después.
    - Otra información: 04-03-2009 Fecha cita control psiquiatría Hospital San Vicente de Paúl de papá.
-
-
-
-
-
 
 ## Parte 4. Tipo personalidad según test psicológico al 2024.
 
