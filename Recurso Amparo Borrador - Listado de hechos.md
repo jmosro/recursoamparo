@@ -214,6 +214,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 ### Colegio Técnico Profesional de Heredia - VOCA Heredia. 2008 (16 años edad) a 2010 (18 años edad).
 
 9. Expediente Registro Policía, sin copia papel.
+
    - Expediente judicial: 09-000409-0651-VD
    - Año: 2009. Fecha Desconozco.
    - Oficina judicial: Juzgado de Violencia Doméstica de Heredia.
@@ -223,14 +224,16 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra Información: No recuerdo casi lo que pasó días después, pero sí fragmentos de lo sucedido en la Comandancia de Policía de Heredia, ese día con mi papá y yo, estando en clases del VOCA de Heredia en ese momento.
 
 10. Expediente Registro Policía, copia papel.
+
    - Expediente judicial: 09-000440-0651-VD
    - Año: 2009. 05-03-2009 Fecha solicitud
    - Año: 2009. 23-03-2009 Fecha comparecencia
    - Oficina judicial: Juzgado de Violencia Doméstica de Heredia.
-   - Resumen: Conflicto familiar. Violencia doméstica entre mamá y papá. Proceso de medidas de protección en materia de violencia intrafamiliar.
+   - Resumen: Conflicto familiar. Violencia doméstica entre mamá y papá. Proceso de medidas de protección en materia de violencia intrafamiliar. Mamá solicita medidas de protección a la policía para ser cumplidas por papá.
    - Otra información: Documentos de papel, incompletos.
    - Otra información: Con medidas de protección Policía.
    - Otra información: No recuerdo casi lo que pasó ese día y días después.
+   - Otra información: 04-03-2009 Fecha cita control psiquiatría Hospital San Vicente de Paúl de papá.
 
 
 
