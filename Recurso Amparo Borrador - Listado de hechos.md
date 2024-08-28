@@ -203,7 +203,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Oficina judicial: Juzgado Contravencional de Heredia.
    - Resumen: Conflicto entre vecinos. Una vecina denuncia a mi mamá. Sentencia absolutoria número 103-2007. Denuncia amenazas, palabras obscenas. 
    - Otra información: Sin uso de la policía Fuerza Pública.
-   - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años.
+   - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
 
 ### Colegio Técnico Profesional de Heredia - VOCA Heredia. 2008 (16 años edad) a 2010 (18 años edad).
 
@@ -215,6 +215,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Documentos de papel, destruidos por mi mamá o papá.
    - Otra información: Con medidas de protección Policía.
    - Otra Información: No recuerdo casi lo que pasó días después, pero sí fragmentos de lo sucedido en la Comandancia de Policía de Heredia, ese día con mi papá y yo, estando en clases del VOCA de Heredia en ese momento.
+   - Otra información: Yo, estudiante de 11mo, del Colegio Técnico Profesional de Heredia. 17 años edad.
 
 2. Expediente Registro Policía, copia papel.
    - Expediente judicial: 09-000440-0651-VD
@@ -226,6 +227,34 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Con medidas de protección Policía.
    - Otra información: No recuerdo casi lo que pasó ese día y días después.
    - Otra información: 04-03-2009 Fecha cita control psiquiatría Hospital San Vicente de Paúl de papá.
+   - Otra información: Yo, estudiante de 11mo, del Colegio Técnico Profesional de Heredia. 17 años edad.
+
+### Instituto Tecnológico de Costa Rica - Tec de Cartago. 2011 (19 años edad) a 2012 (20 años edad).
+
+1. Decidí no interponer denuncias judiciales a la Policía Fuerza Pública y el OIJ, contra un grupo cuadrilla de mujeres y hombres.
+2. Decidí no continuar la universidad, por el ambiente tóxico y espionaje a mi persona. Guararí, Heredia, San José y Cartago. Drogas ilegales, alcohol, delincuentes, Hackeo, marcaje, radios de Costa Rica, televisoras costarricenses, periódicos, entre otros.
+3. Estudiante activo desde enero 2011 a diciembre 2012, 4 semestres consecutivos de clases, 1 año de carrera en el Plan de Estudios 409 de Ingeniería en Computación.
+
+### Año 2013 - Mi primer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. 2013 (21 años edad). Esquizofrenia Paranoide.
+
+1. Expediente Registro Policía, copia papel.
+   - Expediente judicial: 13-001882-0369-PE
+   - Año: 2013. 30-06-2013 02-07-2013 Fecha hurto simple en la noche - madrugada
+   - Año: 2013. 03-07-2013 Fecha denuncia penal
+   - Año: 2013. 11-10-2013 Fecha desisto continuar con la acción penal
+   - Oficina judicial: Fiscalía Adjunta de Heredia.
+   - Resumen: Conflicto entre vecinos. Mi papá denuncia a un vecino. Hurto simple.
+   - Otra información: Yo, sin ser estudiante en alguna institución educativa. 21 años edad.
+   - Otra información: Yo, internamiento en Hospital Psiquiátrico: Del 12-05-2013 al 07-06-2013.
+
+2. Expediente Registro Policía, copia papel.
+   - Expediente judicial: 13-000876-0807-FC
+   - Año: 2013. 03-07-2013 Fecha denuncia genérica
+   - Año: 2013. 03-10-2013 Fecha audiencia conciliación y juicio
+   - Oficina judicial: Juzgado Contravencional de Heredia.
+   - Resumen: Conflicto entre vecinos. Mi papá denuncia a un vecino. Alborotos.
+   - Otra información: Yo, sin ser estudiante en alguna institución educativa. 21 años edad.
+   - Otra información: Yo, internamiento en Hospital Psiquiátrico: Del 12-05-2013 al 07-06-2013.
 
 ## Parte 4. Tipo personalidad según test psicológico al 2024.
 
