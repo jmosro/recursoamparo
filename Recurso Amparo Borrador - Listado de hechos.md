@@ -417,10 +417,60 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 ## Parte 12. Efectos secundarios de drogas desde el año 2020.
 
-- Pánico, agitación nerviosa por antipsicóticos.
-- Psicosis, pérdida de contacto temporal de mi alrededor.
-- Distonía focal o acatisia en los ojos, tipo EMDR.
-- Depresión.
+1. Pánico, agitación nerviosa por antipsicóticos.
+
+   - Desde el año 2020 a 2023. Inició durante mi tercer internamiento en marzo de 2020, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, con el cambio de antipsicóticos, por el diagnóstico de Esquizofrenia Paranoide.
+
+   - Durante el año 2020 hasta 2023, tube que recurrir a momentos de sonidos binaurales con la técnica de Respiración Diafragmática Lenta, para sobrellevar la intensidad del pánico, duración de 2 a 4 horas sin detenerse, fluctuando el nivel de intensidad, algunas veces durante mis clases, cuando era estudiante en IPEC Santo Domingo de Heredia, estudiante activo del año 2019 a 2022, y durante mis viajes en los buses de Santo Domingo al centro de Heredia y de Heredia a Guararí. Un estado alterado de uno de los 3 cerebros, el cerebro reptiliano.
+
+2. Psicosis, pérdida de contacto temporal de mi alrededor.
+
+   - Estado mental por unos segundos, estado psicótico breve, efecto aumentado por uso de antipsicóticos en tabletas de Risperidona y drogas inyectadas en las noches - madrugadas que desconozco el nombre, con ventana de período psicótico activo, entre las 4:00 pm a 7:00 pm, durante el atardecer y anochecer entre los años 2020 a 2023.
+
+   - En mi casa, me siento como con anestesia en mis sentidos, dejo de poner atención a mi alrededor, a veces siento tipo despersonalización / desrealización, a veces mientras tengo movimientos de ojos tipo EMDR en trauma, al pasar los segundos, voy teniendo contacto con mi alrededor de las habitaciones, vuelvo a percibir con mis ojos que hay frente a mi y siento los objetos en mis manos, el frío o calor, el agua, siento los calambres por dispositivos debajo de mi piel y calambres en músculos, puntos gatillo.
+
+   - En mi casa, durante unos segundos cuando eyaculo, o por el uso de dispositivos en el baño que hacen voz de hombre o mujer diciendo mi nombre llamándome.
+
+   - En la calle, siento movimiento de ojos tipo mirada perdida y mirada de visión de túnel, en caso de estar frente a frente de personas en la calle en movimiento.
+
+   - En la calle, sonido pasivo hipnótico en dispositivos Smartphone, en los celulares de personas alrededor de mi, fuera de mi casa, personas en radio cercano de radiofrecuencia a mi persona.
+
+   - Cuando estoy al aire libre, en la calle o patio de mi casa, minutos antes de llover, oscuro y rayería, esos minutos hasta la lluvia, siento una sensación de vacío, miedo, pánico, como si eso quiere dañarme y debo ponerme a salvo.
+
+3. Distonía focal o acatisia en los ojos, tipo EMDR.
+
+   - Movimiento de ojos tipo distonía o acatisia, en forma de zig zag por varios minutos, movimiento de ojos de tipo EMDR - Desensibilización y Reprocesamiento por Movimientos Oculares.
+
+   - En caso de estar en contacto con algo que me recuerde un momento de miedo o que quiero evitar, veo imágenes y videos en mi celular o laptop, estoy en un lugar, con ciertas personas en específico.
+
+   - No puedo evitar el zig zag, ni incluso parpadeando. Por varios segundos de zig zag, miro a un punto fijo sin tener movimiento de zig zag, como viviendo flashbacks sin sentimientos ni emociones con despersonalización o desrealización, sin recordar recuerdos del flashback pero mirando consciente de lo que tengo frente y directo de los ojos, un flashback sin recuerdos pero sintiendo que estoy viviendo por segunda vez "ese algo" que no me gustó, a veces si recuerdo el evento.
+
+4. Depresión.
+
+   - Por el uso de drogas inyectadas en las noches y madrugadas, para sentirme fatal ese día, que ocupan ese grupo de personas, para sus experimentos y con Inteligencia Artificial para sus sistemas en radios y televisoras de Costa Rica, también para grabar videos e imágenes para sus películas y personas que me espian usando sus diferentes dispositivos.
+
+   - Durante mis viajes en bus con esa cuadrilla de mujeres y hombres del Tec de Cartago - Instituto Tecnológico de Costa Rica del año 2011 a 2012 y Voca Heredia - Colegio Técnico Profesional de Heredia durante mi último nivel técnico del año 2010, estudiante del Voca del año 2008 a 2010.
+
+   - Durante los días religiosos.
+
+   - Durante cuando me siento triste y estoy con mi perro Body.
+
+   - Durante el uso de la laptop por sus hackeos e uso de dispositivos para vulnerar mis dispositivos personales.
+
+   - Durante cuando escucho la radio, Radio Monumental con el programa Pelando el Ojo de 5:00 pm a 7:00 pm.
+
+   - Durante mi estado de hipertensión reactiva y excitación sexual cuando me estoy bañando.
+
+   - Durante las noticias, Noticias Repretel.
+
+   - 6 sesiones de Terapia Electroconvulsiva por depresión severa, en el segundo internamiento en el mes de agosto de 2017, internamiento de mayo a agosto del año 2017, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+
+   - Por el uso de dispositivos pasivos que hacen y emiten sonido "tlak" para joder, meses antes de cada internamiento en el Hospital Nacional Psiquiátrico, 3 internamientos en los años 2013, 2017 y 2020.
+
+
+
+
+
 - Rumiar, tipo TOC - Transtorno Obsesivo Compulsivo.
 - Ansiedad.
 - Despersonalización y desrealización.
@@ -439,6 +489,23 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 - Escalofríos en varias partes del cerebro y cuerpo.
 - Problemas de memoria, al recordar cosas vividas hace unos minutos.
 - Sueños largos que puedo recordar al despertar.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## Parte 13. Mis conclusiones.
 
