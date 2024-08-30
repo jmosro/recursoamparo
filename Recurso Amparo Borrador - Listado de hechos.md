@@ -429,13 +429,15 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
    - En mi casa, me siento como con anestesia en mis sentidos, dejo de poner atención a mi alrededor, a veces siento tipo despersonalización / desrealización, a veces mientras tengo movimientos de ojos tipo EMDR en trauma, al pasar los segundos, voy teniendo contacto con mi alrededor de las habitaciones, vuelvo a percibir con mis ojos que hay frente a mi y siento los objetos en mis manos, el frío o calor, el agua, siento los calambres por dispositivos debajo de mi piel y calambres en músculos, puntos gatillo.
 
-   - En mi casa, durante unos segundos cuando eyaculo, o por el uso de dispositivos en el baño que hacen voz de hombre o mujer diciendo mi nombre llamándome.
+   - En mi casa, durante unos segundos cuando eyaculo, principal cuando eyaculo rápido y brusco, aumentado cuando me siento excitado sexual por inyecciones de drogas en las noches y madrugadas, sintiendo excitación sexual desde la mañana hasta detenerse al eyacular, e hipertensión reactiva con psicosis. A veces durante unos segundos por el uso de dispositivos en el baño que hacen voz de hombre o mujer diciendo mi nombre llamándome.
 
    - En la calle, siento movimiento de ojos tipo mirada perdida y mirada de visión de túnel, en caso de estar frente a frente de personas en la calle en movimiento.
 
    - En la calle, sonido pasivo hipnótico en dispositivos Smartphone, en los celulares de personas alrededor de mi, fuera de mi casa, personas en radio cercano de radiofrecuencia a mi persona.
 
    - Cuando estoy al aire libre, en la calle o patio de mi casa, minutos antes de llover, oscuro y rayería, esos minutos hasta la lluvia, siento una sensación de vacío, miedo, pánico, como si eso quiere dañarme y debo ponerme a salvo.
+
+   - Después de inyecciones de drogas en las noches y madrugadas en nalgas y músculos deltoides de brazos, efecto durante las mañanas entre 6:00 am a 8:00 am, en horario cuando escucho las noticias, Noticias Repretel. Referencian algo de un anuncio publicitario con contenido relacionado al tema servicio sanitario, siento calor en medio de las nalgas, sensación incómodo y estado de psicosis con despersonalización o desrealización.
 
 3. Distonía focal o acatisia en los ojos, tipo EMDR.
 
