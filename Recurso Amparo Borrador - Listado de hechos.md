@@ -467,13 +467,55 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
    - Por el uso de dispositivos pasivos que hacen y emiten sonido "tlak" para joder, meses antes de cada internamiento en el Hospital Nacional Psiquiátrico, 3 internamientos en los años 2013, 2017 y 2020.
 
+5. Rumiar, tipo TOC - Transtorno Obsesivo Compulsivo.
+
+   - A veces, cuando escribo mensajes por WhatsApp a mis familiares o amigos, dar vuelta a un tema escrito en el mensaje, recordar de varias formas, no en formal original, en crudo ese escrito, dando vueltas tipo depresión, despersonalización y odio.
+
+   - A veces, cuando siento Hipertensión Reactiva y excitación sexual, e impulsivo mientras escribo el mensaje a mis contactos.
+
+6. Ansiedad.
+
+   - Movimiento de los labios y lengua de mi boca, rodillas, pies, rascar la cabeza por caspa y granos sobre la piel cabelludo.
+
+   - Sudor en axilas, palmas de la mano, cara, orejas calientes, nalgas, pies, aumentado por los dispositivos colocados en los nervios de esas partes del cuerpo para medir y causar más actividad nerviosa y sudor.
+
+   - Antes de salir de la casa y tener que coger bus, ganas de tomar agua y orinar.
+
+   - Por uso de dispositivos que emiten sonidos pasivos "tlak".
+
+   - En los estados de despersonalización / desrealización y pánico por agitación nerviosa por uso de antipsicóticos y drogas inyectadas en las noches y madrugadas.
+
+   - Cuando trato de concentrarme en la laptop para estudiar temas relacionados a mis estudios, muchos estímulos alrededor jodiendo, televisión, radio, vecinos, sonidos pasivos, carros, perros ladrando, gente hablando, familiares hablando en la misma casa.
+
+   - Hablar con otras personas frente a frente fuera de mi casa, mientras me siento observado por personas alrededor.
+
+   - Compulsiones después de eyacular.
+
+   - Después de inyecciones en las madrugadas y noches para ese día, para utilizar ese día mi información, los medios de comunicación, radios y televisoras de Costa Rica, principal Noticias Repretel, obtenidos por uso de diferentes dispositivos, personas espiando que hago.
+
+   - En contexto judicial y de policía durante ese día relacionado a mi persona, por parte de varias personas usando sus dispositivos.
+
+7. Despersonalización y desrealización.
+
+   - Como si los carros se movieran en cámara lenta.
+
+   - Como si tuviera un casco de motocicleta viendo a mi alrededor.
+
+   - Parece no haber profundidad de distancia en objetos, casas, vehículos ni peso.
+
+   - Como si las personas alrededor de mi fuesen dejá vu, se repite en esa persona en ese mismo lugar, una y otra vez y no son reales.
+
+   - Me cuesta memorizar, recordar cosas simples y hacer cálculos mentales sencillos, cuando estoy comprando en Palí Lagos o Pequeño Mundo.
+
+   - Capacidad de imaginar un bus en copias de espejo a los lados, arriba y abajo, en el puente entre Guararí y La Milpa, mientras camino y va pasando carros en movimiento, por las inyecciones de drogas en las noches y madrugadas para ese día.
+
+   - Como si las hojas de árboles y plantas se movieran en cámara lenta con el viento y tuviera colores llamativos.
+
+   - Después de inyecciones en las madrugadas y noches para ese día, tipo drogas disociativas, de camino a pie al Hospital de Heredia - Hospital San Vicente de Paúl, cada mes por mi medicamento pastillas/tabletas, como si viera los blocks y tubos de cañería de cemento de una empresa de camino, en copias, sin peso y respetando el orden lógico del volumen del block y color, uno sobre otro para formar tipo muralla de 5 metros de alto, que puedo mover sin tocar y apilar más blocks, formando una pared en medio de la acera del lado opuesto mientras voy caminando, y en la carretera tipo alucinaciones, donde la muralla no toca el suelo y esta suspendido en el aire, que se mueve a la misma distancia que voy caminando, sin chocar con ningún carro en movimiento sobre la calle.
 
 
 
 
-- Rumiar, tipo TOC - Transtorno Obsesivo Compulsivo.
-- Ansiedad.
-- Despersonalización y desrealización.
 - TDA - Transtorno Déficit de Atención.
 - TOC - Transtorno Obsesivo Compulsivo y Paranoias.
 - TID - Transtorno de Identidad Disociativo.
