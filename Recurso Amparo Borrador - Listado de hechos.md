@@ -565,3 +565,16 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 8. Actual 2024, reafirmar mi posición sobre esa universidad por 14 años, día tras día, frente a frente de ese grupo de personas en las calles, negocios y buses, ahora en remoto por uso de dispositivos de cámaras para espiar, en donde es mi domicilio y hackeo de mis dispositivos a toda prioridad.
 9. Considero, las recomendaciones de expertos en temas de Ansiedad y terapias de exposición al trauma, también sobre el Estrés Postraumático, el inicio de mis pródromos de Esquizofrenia Paranoide durante ese tiempo en el Tec de Cartago, cada uno de los 3 internamientos en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres y la falta de apoyo de los policías.
 10. Yo concluyo, volver al Instituto Tecnológico de Costa Rica, sede Cartago, a estudiar y continuar la Carrera Ingeniería en Computación, es continuar la violencia usando mis conocimientos contra las personas que quiero ayudar y contra mi mismo, por parte de un grupo de personas para sus experimentos sociales y con uso de drogas, drogas que nisiquiera sé que son.
+
+### Grupo de personas involucradas e involucrados.
+
+1. Son 3 tipos de grupo de personas.
+   - Grupo 1, creadores de los sistemas, protegidos usando leyes, utilizando el tema Salud Mental para sus intereses, sus experimentos sociales y con uso de drogas.
+   - Grupo 2, beneficiarios, ese grupo cuadrilla de mujeres y hombres de la policía, por 14 años seguidos.
+   - Grupo 3, personas civiles, involucrados utilizando esos sistemas de software y dispositivos espias.
+
+2. El grupo 1, han creado varios sistemas de software, incluyendo Sistemas de Inteligencia Artificial, dispositivos IoT - Internet de las Cosas, otros dispositivos y herramientas para hackeo, utilizando drogas y experimentos sociales en radios y televisión de Costa Rica, para proteger los intereses de ese mismo grupo de personas, y así para beneficiar al grupo 2, ese grupo cuadrilla de mujeres y hombres de la policía.
+
+3. Involucrando la violación de Derechos Humanos de mi persona, hackeo, y otros delitos, contra mi voluntad y sin mi consentimiento, utilizando leyes que no se me han explicado y omitiendo información a mi persona, para justificar y así poder utilizar esos sistemas, reflejado en la Violencia de Costa Rica desde 2023 y 2024, por acceso y uso de mi información, por el grupo 2 y grupo 3.
+
+4. Con ayuda de leyes, involucran al grupo 3, personas civiles, que no se relacionan a la policía, utilizando esos sistemas, donde yo concluyo: es la continuación de ese espionaje y violencia que iniciaron ese grupo 2, de cuadrilla de mujeres y hombres de la policía, en ciclos de violencia, varias veces, en 14 años seguidos.
