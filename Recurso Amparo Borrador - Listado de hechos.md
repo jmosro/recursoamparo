@@ -323,6 +323,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 35. Uso de dispositivos para reproducir voces de personas y música durante mis poluciones nocturnas o eyaculaciones, cada cierto período de semanas transcurridos.
 36. Uso de dispositivos para provocar dolor en la superficie del pecho, debajo de la piel, en el lado izquierdo, arriba como a menos de 5 centímetros y derecha del pezón izquierdo sin llegar al centro del pecho, no provoca tipo calambre ni contracción del músculo del pecho como los otros dispositivos en todo el cuerpo, parece una punzada superficial, respirar lento diafragmático para contrarrestar, hasta detenerse.
 37. Uso de dispositivos en artefacto de aplanchar ropa - plancha, para sonar sonidos tipo ventilador u otro objetivo espía, sin estar conectado a la corriente eléctrica, ubicación sobre una mesa y ventana donde yo estoy mientras uso la laptop.
+38. Uso de ropa comprada y perfecto vendida, para tener olor a perro mojado y sucio, zapatos para tener olor a caca de humano, para provocar recuerdos y flashback de los eventos sucedidos con un grupo cuadrilla de mujeres y hombres, en los buses de Guararí a San José, de la empresa La 400; buses Heredia a San José, de la empresa Busetas Heredianas; buses Guararí a Heredia de la empresa Grupo Acuza; buses de San José a Cartago, de la empresa Lumaca, buses de la universidad Instituto Tecnológico de Costa Rica - Tec de Cartago, en los años 2011 y 2012, y Colegio Técnico Profesional de Heredia - Voca Heredia, en el año 2010.
 
 ## Parte 6. Marcador psicótico.
 
@@ -352,6 +353,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 24. Marcador psicótico usando drogas inyectadas en las madrugadas y noches, para ponerme en un estado mental para que las noticias, canal 6 - Noticias Repretel, usen mi información obtenidos por sus dispositivos en tiempo real en mi persona o usando la información obtenidos por sus dispositivos en otra persona que accede a mi información en tiempo real, para su programación mientras estoy en ese estado mental.
 25. Marcador psicótico usando drogas inyectadas en las madrugadas y noches, para sentir despersonalización y psicosis, ese mismo día, minutos antes de llover y durante la rayería.
 26. Marcador psicótico usando drogas inyectadas en las madrugadas y noches, para sentir despersonalización, ansiedad, tipo exceso de cortisol, durante ese día, para sentir que se mueve el piso, en mis nalgas, cuando estoy sentado en una silla, también registro en la Inteligencia Artificial de mi reacción durante temblores y erupciones volcánicas en Costa Rica.
+27. Marcador psicótico usando olores a caca, sudor, olor a perro mojado, en mi ropa personal y zapatos, embarrando de caca en las noches y madrugadas, el mueble de ropero en mi dormitorio. Asi como hacer huecos en mi ropa interior, bóxers. Alteración del contenido de desodorantes para no funcione el líquido, así tener sudor y mal olor en camisas. Uso de drogas inyectadas en las noches y madrugadas, para sudar la ropa y crear estados de ansiedad, gases en el estómago, sudor en axilas y pies.
 
 ## Parte 7. CCSS.
 
