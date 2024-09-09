@@ -588,7 +588,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 2. Fecha de eventos.
    - Inicio cerraduras puerta. Jueves, 30 de noviembre de 2023.
    - OIJ. Miércoles, 13 de diciembre de 2023. Demanda interpuesta por mi en el OIJ de Heredia, por hackeo y experimentos de un grupo de personas.
-   - Psiquiatría. Jueves, 18 de enero de 2024. Cita con la psiquiatra del Hospital San Vicente de Paúl, en citas de control cada 8 o 6 meses.
+   - Psiquiatría. Miércoles, 17 de enero de 2024 y Jueves, 18 de enero de 2024. Cita con la psiquiatra del Hospital San Vicente de Paúl, en citas de control cada 8 o 6 meses.
    - Fin cerraduras puerta. Martes, 14 de mayo 2024. Fecha de mi cumpleaños.
    - 5 meses todos dias, cada noche.
 
