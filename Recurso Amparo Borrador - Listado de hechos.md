@@ -581,23 +581,38 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 4. Con ayuda de leyes, involucran al grupo 3, personas civiles, que no se relacionan a la policía, utilizando esos sistemas, donde yo concluyo: es la continuación de ese espionaje y violencia que iniciaron ese grupo 2, de cuadrilla de mujeres y hombres de la policía, en ciclos de violencia, varias veces, en 14 años seguidos.
 
-### Acceso a mi dormitorio, enumerar y listar los +30 dispositivos.
+### Acceso a mi dormitorio, cerrar puerta, seguridad, enumerar y listar los +30 dispositivos.
 
-1. Cerrar el dormitorio con varios seguros en la puerta.
+1. Seguridad en mi dormitorio, usando varias formas de cerradura en la puerta y obtener listado de dispositivos para hackear a mi persona.
 
 2. Fecha de eventos.
-   - Inicio. Jueves, 30 de noviembre de 2023.
+   - Inicio cerraduras puerta. Jueves, 30 de noviembre de 2023.
    - OIJ. Miércoles, 13 de diciembre de 2023. Demanda interpuesta por mi en el OIJ de Heredia, por hackeo y experimentos de un grupo de personas.
    - Psiquiatría. Jueves, 18 de enero de 2024. Cita con la psiquiatra del Hospital San Vicente de Paúl, en citas de control cada 8 o 6 meses.
-   - Fin. Martes, 14 de mayo 2024. Fecha de mi cumpleaños.
+   - Fin cerraduras puerta. Martes, 14 de mayo 2024. Fecha de mi cumpleaños.
    - 5 meses todos dias, cada noche.
 
-3. Confirmado, alguien ingresa en las noches y madrugadas, forzando seguros en la puerta, volviendo a colocar las cosas en su lugar, para ocultar evidencia. Existencia de huecos en el cielorraso y puerta.
+3. Objetos de seguridad.
+   - Cerradura de llavin.
+   - Cerradura de picaporte.
+   - Zapatos en la puerta.
+   - Peluches sobre el llavin para detectar movimiento.
+   - Banco de comedor, para hacer ruido.
 
-4. Confirmado, uso de +30 tipos de funcionamiento de dispositivos, dispositivos de cámaras en mi dormitorio y otros dispositivos para hackeo para ataques de día 0.
+4. Dispositivos en el dormitorio.
+   - Huecos en el marco de la puerta, para meter ganzúa y forzar cerradura de picaporte.
+   - Acceso a copia de la llave del llavin de la puerta.
+   - Cámara con alta resolución y fotogramas por segundo en bombillo led blanco, de los que trae circuito integrado, para registrar cada tecla en mis contraseñas, en la laptop estando en el dormitorio.
+   - Dispositivos en huecos del cielorraso.
+   - Dispositivos en marcos de la ventana.
+   - Dispositivos incrustados en paredes del dormitorio.
 
-5. Me tomé el medicamento de pastillas / tabletas, cada día, a las dosis que acordé en la cita con la psiquiatra, en la cita de control en enero de 2024. La psiquiatra desconoce el uso de las inyecciones de drogas. Le llevé copia de mi denuncia judicial en el OIJ.
+5. Confirmado, alguien ingresa en las noches y madrugadas, forzando seguros en la puerta, volviendo a colocar las cosas en su lugar, para ocultar evidencia. Existencia de huecos en el cielorraso y puerta.
 
-6. Ingreso de personas a mi dormitorio para inyectarme drogas, hackear la laptop, hackear mi celular y libreta personal.
+6. Confirmado, uso de +30 tipos de funcionamiento de dispositivos, dispositivos de cámaras en mi dormitorio y otros dispositivos para hackeo para ataques de día 0.
 
-7. No tube brote psicótico, no me dejaba a los experimentos con drogas y experimentos sociales, para los intereses de un grupo de personas, en esos 5 meses seguidos, asi enumerar y listar los +30 dispositivos para joder.
+7. Me tomé el medicamento de pastillas / tabletas, cada día, a las dosis que acordé en la cita con la psiquiatra, en la cita de control en enero de 2024. La psiquiatra desconoce el uso de las inyecciones de drogas. Le llevé copia de mi denuncia judicial en el OIJ.
+
+8. Ingreso de personas a mi dormitorio para inyectarme drogas, hackear la laptop, hackear mi celular y libreta personal.
+
+9. No tube brote psicótico, no me dejaba a los experimentos con drogas y experimentos sociales, para los intereses de un grupo de personas, en esos 5 meses seguidos, asi enumerar y listar los +30 dispositivos para joder.
