@@ -580,3 +580,24 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 3. Involucrando la violación de Derechos Humanos de mi persona, hackeo, y otros delitos, contra mi voluntad y sin mi consentimiento, utilizando leyes que no se me han explicado y omitiendo información a mi persona, para justificar y así poder utilizar esos sistemas, reflejado en la Violencia de Costa Rica desde 2023 y 2024, por acceso y uso de mi información, por el grupo 2 y grupo 3.
 
 4. Con ayuda de leyes, involucran al grupo 3, personas civiles, que no se relacionan a la policía, utilizando esos sistemas, donde yo concluyo: es la continuación de ese espionaje y violencia que iniciaron ese grupo 2, de cuadrilla de mujeres y hombres de la policía, en ciclos de violencia, varias veces, en 14 años seguidos.
+
+### Acceso a mi dormitorio, enumerar y listar los +30 dispositivos.
+
+1. Cerrar el dormitorio con varios seguros en la puerta.
+
+2. Fecha de eventos.
+   - Inicio. Jueves, 30 de noviembre de 2023.
+   - OIJ. Miércoles, 13 de diciembre de 2023. Demanda interpuesta por mi en el OIJ de Heredia, por hackeo y experimentos de un grupo de personas.
+   - Psiquiatría. Jueves, 18 de enero de 2024. Cita con la psiquiatra del Hospital San Vicente de Paúl, en citas de control cada 8 o 6 meses.
+   - Fin. Martes, 14 de mayo 2024. Fecha de mi cumpleaños.
+   - 5 meses todos dias, cada noche.
+
+3. Confirmado, alguien ingresa en las noches y madrugadas, forzando seguros en la puerta, volviendo a colocar las cosas en su lugar, para ocultar evidencia. Existencia de huecos en el cielorraso y puerta.
+
+4. Confirmado, uso de +30 tipos de funcionamiento de dispositivos, dispositivos de cámaras en mi dormitorio y otros dispositivos para hackeo para ataques de día 0.
+
+5. Me tomé el medicamento de pastillas / tabletas, cada día, a las dosis que acordé en la cita con la psiquiatra, en la cita de control en enero de 2024. La psiquiatra desconoce el uso de las inyecciones de drogas. Le llevé copia de mi denuncia judicial en el OIJ.
+
+6. Ingreso de personas a mi dormitorio para inyectarme drogas, hackear la laptop, hackear mi celular y libreta personal.
+
+7. No tube brote psicótico, no me dejaba a los experimentos con drogas y experimentos sociales, para los intereses de un grupo de personas, en esos 5 meses seguidos, asi enumerar y listar los +30 dispositivos para joder.
