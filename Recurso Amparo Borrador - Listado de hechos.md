@@ -616,3 +616,15 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 8. Ingreso de personas a mi dormitorio para inyectarme drogas, hackear la laptop, hackear mi celular y libreta personal.
 
 9. No tube brote psicótico, no me dejaba a los experimentos con drogas y experimentos sociales, para los intereses de un grupo de personas, en esos 5 meses seguidos, asi enumerar y listar los +30 dispositivos para joder.
+
+### De niño 2004 a 2006, sonido tlak y rasguños de cucaracha, cuerda de guitarra o tambor vibrante.
+
+1. Entre los años 2004 a 2006, escuchaba sonidos parecidos que me recuerdan a los sonidos tlak y rasguños, tipo cucaracha rasguñando la madera, en la mesa, mientras estudiaba entre los años 2004 a 2006. Al irme quedando dormido escuchaba ese sonido y me despertaba mientras estudiaba en la noche, para los exámenes de la Escuela Finca Guararí del año 2004 y del colegio Liceo Los Lagos de los años 2005 a 2007, no preciso recuerdo de esos sonidos durante mis estudios en el VOCA de Heredia - Colegio Técnico Profesional de Heredia de los años 2008 a 2010.
+
+2. Estimo que en el año 2004, a mis 12 años de edad, durante las noches, alguna persona usaba un juguete mío o de mis hermanos, o uno de los tarros de pintura almacenados arriba del clóset en mi dormitorio, para hacer un único y muy fuerte, sonido de vibración de cuerda de guitarra con un juguete con baterías que tenía, o golpe de tambor vibrante con los tarros de pintura vacíos, para despertarme y causarme pánico, hasta quedarme dormido escondido debajo de las cobijas, no me parece que había una rata o ratón en el clóset para hacer ese sonido.
+
+3. En el año 2004, durante mi último año de ser estudiante de 6to grado de la Escuela Finca Guararí, tube depresión y estaba en control con medicamentos, un medicamento fue Ácido Fólico. En el Hospital México, en la Uruca, me hicieron un TAG - Resonancia Magnética, tenía citas de control en ese hospital. Además, tenía citas con una psicóloga llamada Marcela en la escuela, ya que estaba teniendo problemas sexuales en mis comportamientos y depresión.
+
+4. En el año 2006 a mis 14 años, fue la fecha internamiento de mi papá por intento de suicidio, bebiendo veneno para matar cucarachas, internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres entre el 22/03/2006 al 11/04/2006.
+
+5. En el año 2004, tube problema en la Escuela Finca Guararí, durante el exámen de Prueba Nacional Estandarizada de Matemáticas, donde fui el último estudiante en salir del aula, la profesora notó que me balanceaba con mucha ansiedad en el pupitre y me dio como 15 respuestas que me faltaba, estaba en crisis.
