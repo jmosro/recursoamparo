@@ -217,7 +217,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Oficina judicial: Juzgado de Violencia Doméstica de Heredia.
    - Resumen: Conflicto familiar. Violencia doméstica entre papá y mamá.
    - Otra información: Documentos de papel, destruidos por mi mamá o papá.
-   - Otra información: Con medidas de protección Policía.
+   - Otra información: Con medidas de protección policía.
    - Otra Información: No recuerdo casi lo que pasó días después, pero sí fragmentos de lo sucedido en la Comandancia de Policía de Heredia, ese día con mi papá y yo, estando en clases del VOCA de Heredia en ese momento.
    - Otra información: Yo, estudiante de 11mo, del Colegio Técnico Profesional de Heredia. 17 años edad.
 
@@ -237,7 +237,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
 
 1. Decidí no interponer denuncias judiciales a la Policía Fuerza Pública y el OIJ, contra un grupo cuadrilla de mujeres y hombres.
 2. Decidí no continuar la universidad, por el ambiente tóxico y espionaje a mi persona. Guararí, Heredia, San José y Cartago. Drogas ilegales, alcohol, delincuentes, Hackeo, marcaje, radios de Costa Rica, televisoras costarricenses, periódicos, escándalos en buses, sonidos pasivos, entre otros.
-3. Estudiante activo desde enero 2011 a diciembre 2012, 4 semestres consecutivos de clases, 1 año de carrera en el Plan de Estudios 409 de Ingeniería en Computación.
+3. Estudiante activo desde enero 2011 a diciembre 2012, 4 semestres consecutivos de clases, 1 año de carrera en el Plan de Estudios 409 de Bachillerato en Ingeniería en Computación.
 
 ### Año 2013 - Mi primer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. 2013 (21 años edad). Esquizofrenia Paranoide.
 
