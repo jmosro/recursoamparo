@@ -108,8 +108,8 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - 2007 - 07-000218-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
    - 2009 - 09-000409-0651-VD - Juzgado Violencia Doméstica - Violencia doméstica entre papá y mamá
    - 2009 - 09-000440-0651-VD - Juzgado Violencia Doméstica - Violencia doméstica entre mamá y papá
-   - 2013 - 13-001882-0369-PE - Fiscalía Adjunta de Heredia - Conflicto entre vecinos
-   - 2013 - 13-000876-0807-FC - Juzgado Contravencional de Heredia - Conflicto entre vecinos
+   - 2013 - 13-001882-0369-PE - Fiscalía Adjunta - Conflicto entre vecinos
+   - 2013 - 13-000876-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
    - 2018 - 18-003751-0059-PE - Delegación Regional de Heredia - Asalto a hermano
    - 2022 - 22-000621-0059-PE - Delegación Regional de Heredia - Asalto a hermano
 
