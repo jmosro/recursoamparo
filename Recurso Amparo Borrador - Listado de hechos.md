@@ -1,6 +1,7 @@
 # Recurso de Amparo Borrador - Listado de hechos
 
-Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024.
+Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024.
+
 
 ## Parte 1. Medicamentos Epicrisis.
 
@@ -51,6 +52,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
     - Uso de otros medicamentos drogas sin detallar nombres, inyectados en las madrugadas y noches.
     - Uso de otros medicamentos drogas sin detallar nombres, en tabletas/pastillas de cada mes, dentro de Risperidona, Biperideno y Difenhidramina.
 
+
 ## Parte 2. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mi persona.
 
 0. Listado expedientes policía.
@@ -97,6 +99,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Clase: PRINCIPAL - VIOLENCIA DOMÉSTICA
    - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
 
+
 ## Parte 3. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mis familiares.
 
 0. Listado expedientes policía.
@@ -112,6 +115,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - 2013 - 13-000876-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
    - 2018 - 18-003751-0059-PE - Delegación Regional de Heredia - Asalto a hermano
    - 2022 - 22-000621-0059-PE - Delegación Regional de Heredia - Asalto a hermano
+
 
 ### Escuela Finca Guararí. 1998 (6 años edad) a 2004 (12 años edad).
 
@@ -130,6 +134,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Resumen: Conflicto entre vecinos. Mi mamá y papá denuncian a una vecina. Palabras obscenas, daño a la vivienda. Audiencia de conciliación, juicio oral y público, en los Tribunales de Justicia de Heredia.
    - Otra información: Sin uso de la policía Fuerza Pública.
    - Otra información: Yo, estudiante de 6to grado, de la Escuela Finca Guararí. 12 años edad.
+
 
 ### Colegio Liceo Los Lagos. 2005 (13 años edad) a 2007 (15 años edad).
 
@@ -209,6 +214,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Sin uso de la policía Fuerza Pública.
    - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
 
+
 ### Colegio Técnico Profesional de Heredia - VOCA Heredia. 2008 (16 años edad) a 2010 (18 años edad).
 
 1. Expediente Registro Policía, sin copia papel.
@@ -233,11 +239,13 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: 04-03-2009 Fecha cita control psiquiatría Hospital San Vicente de Paúl de papá.
    - Otra información: Yo, estudiante de 11mo, del Colegio Técnico Profesional de Heredia. 17 años edad.
 
+
 ### Instituto Tecnológico de Costa Rica - Tec de Cartago. 2011 (19 años edad) a 2012 (20 años edad).
 
 1. Decidí no interponer denuncias judiciales a la Policía Fuerza Pública y el OIJ, contra un grupo cuadrilla de mujeres y hombres.
 2. Decidí no continuar la universidad, por el ambiente tóxico y espionaje a mi persona. Guararí, Heredia, San José y Cartago. Drogas ilegales, alcohol, delincuentes, Hackeo, marcaje, radios de Costa Rica, televisoras costarricenses, periódicos, escándalos en buses, sonidos pasivos, entre otros.
 3. Estudiante activo desde enero 2011 a diciembre 2012, 4 semestres consecutivos de clases, 1 año de carrera en el Plan de Estudios 409 de Bachillerato en Ingeniería en Computación.
+
 
 ### Año 2013 - Mi primer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. 2013 (21 años edad). Esquizofrenia Paranoide.
 
@@ -260,6 +268,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Otra información: Yo, sin ser estudiante en alguna institución educativa. 21 años edad.
    - Otra información: Yo, internamiento en Hospital Psiquiátrico: Del 12-05-2013 al 07-06-2013.
 
+
 ### Año 2018 - Sin eventos.
 
 1. Expediente Registro Policía, copia papel.
@@ -268,6 +277,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Oficina judicial: Delegación Regional de Heredia.
    - Resumen: Asalto. Un hermano es asaltado.
    - Otra información: Yo, sin ser estudiante en alguna institución educativa. 26 años edad.
+
 
 ### Año 2022 - IPEC Santo Domingo de Heredia. 2022 (30 años edad).
 
@@ -278,52 +288,106 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-ago-2024
    - Resumen: Asalto. Un hermano es asaltado.
    - Otra información: Yo, estudiante curso libre Inglés del IPEC Santo Domingo de Heredia. 30 años edad.
 
+
 ## Parte 4. Tipo personalidad según test psicológico al 2024.
 
 1. 16 personalidades del MBTI - Myers-Briggs Type Indicator.
 2. Personalidad: INFJ-T Abogado.
 3. Test realizado: Jueves, 11 de Julio de 2024. Mismo resultado de tipología personalidad, en el mismo test durante el 2023.
 
+
 ## Parte 5. Dispositivos usados.
 
-1. Uso dispositivos tipo cámaras de 1 milímetro inscrustados en paredes de habitaciones, recargadas por luz solar y luz bombillos.
-2. Uso dispositivos tipo cámaras de 1 milímetro en anteojos personales.
-3. Uso dispositivos tipo cámaras en circuitos integrados en los bombillos led de luz blanca.
-4. Uso dispositivos debajo de la piel del cabello de la cabeza, para registrar electroencefalografía, desde la Terapia Electroconvulsiva en 2017 por depresión severa en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
-5. Uso dispositivos debajo de la piel del cabello de la cabeza, para emitir descarga eléctrica desde el exterior al interior de zonas de lóbulos del cerebro.
-6. Uso dispositivos debajo de la piel en brazos, piernas, tronco y cara que hacen calambres o contracciones en los músculos para distraer de estados mentales y emocionales. También para la actividad nerviosa en dedos de las manos, pecho, axilas, nalgas. Sudor y goteo en las palmas de las manos y axilas, cuando el contexto del día es judicial.
-7. Uso dispositivos en arterias o venas debajo de la piel en zonas cercanas entre el codo y el músculo bíceps braquial, para regular presión arterial.
-8. Uso dispositivos para alterar funcionamiento de dispositivos tensiómetro de control de presión arterial digital, marca Microlife, alterando los resultados de números en pantalla cuando conviene, desde 2023.
-9. Uso dispositivos en el interior de cada oreja / oído para reproducir sonidos pasivos y ruido blanco, desde 2022. También hacer zumbido, vibrar.
-10. Uso dispositivos durante año 2012 y 2013 antes del primer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, uso de dispositivos hasta mayo del año 2013 (internamiento del 12 de mayo de 2013 al 07 de junio de 2013 - 1 mes), dispositivos capaz de mover sus piezas y ocultar sus cámaras de vigilancia usando agujeros en el cielorraso y hacer sonido pasivo "tlak" para fastidiar, comienzo durante año 2012 cuando fui estudiante de segundo año de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica (estudiante universitario activo desde semestre 1 del año 2011 al semestre 2 del año 2012 - 2 años), dispositivos en cielorraso casa anexa que se alquila en la misma propiedad, en 2012 era 1 sola casa.
-11. Uso dispositivos año 2012, tipo micrófono dentro de un parlante grande de equipo de sonido radiofónico, colocado en cocina de la casa, durante segundo año de ser estudiante activo de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, para registrar conversaciones adicionales de mi persona, anexo a las conversaciones de grabaciones de audio obtenidas de mi celular personal, marca Nokia 2730, de voces de mi persona y de cuadrillas de mujeres hablando en buses, con el objetivo que esa cuadrilla de mujeres usen esas conversaciones de esos micrófonos en mi casa durante el trayecto de los buses, buses ruta Guararí - San José, de la empresa La 400; buses ruta Heredia - San José, de la empresa Busetas Heredianas; buses ruta San José - Cartago, de la empresa Lumaca.
-12. Uso dispositivos año 2011, 2012 de celulares para reproducir sonidos de alerta de mensajes de texto, para notificar personas, sobre mensajes de texto sms enviados por mi persona, durante la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
-13. Uso dispositivos año 2012 de sonidos de cuervos en parques municipales principales de las provincias de San José y Cartago, para alertar a personas alrededor del dispositivo, de mi llegada cercana a la zona, durante mi último año en la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
-14. Uso dispositivos, desde año 2016 incrustados en marcos de madera de ventanas que hacen sonidos pasivos tipo "tlak", para varias funciones de marcadores psicóticos, algunas veces para anular algún estado mental de pensamiento, recuerdo, psicótico; otras veces para joder la paciencia y fastidiar tipo hacer, estados emocionales de depresión, ansiedad, irritabilidad.
-15. Uso dispositivos desde año 2016, como sonidos pasivos usando lagartijas Gecko, en casa, vecinos y comunidad Guararí.
-16. Uso de dispositivos desde año 2020 en Smartphone de gente conocidos y desconocidos para reproducir sonidos pasivos hipnótico, usando información registrada por los dispositivos en mi cabeza.
-17. Uso dispositivos para reproducir sonidos pasivos de pitido buzzer de Arduino y sonido de rebote de choque de metales en cielorraso de los 2 baños de la casa.
-18. Uso dispositivos capaces de moverse y esconder en tuberías de desagüe de aguas de la ducha del baño en patio de la casa.
-19. Uso de dispositivos en tuberías de agua potable para minimizar y maximizar de golpe corriente de agua en movimiento, durante el duchado de mi cuerpo y durante el lavado de manos en pilas, una ducha del baño, donde pasa el evento, está sin conexión con dispositivos de calentador de agua.
-20. Uso dispositivos dentro de colchón de mi cama del dormitorio.
-21. Uso dispositivos reproduciendo música o voces de personas de hechos en contexto de hechos delictivos en dias anteriores, mientras duermo en mi dormitorio durante las fases del sueño, evidenciando voces durante el comienzo de dormir, parecidas a las alucinaciones en el Transtorno del Sueño por Narcolepsia o las Alucinaciones Hipnagógicas, cuando se retiene el sueño, estado mental entre dormido y despierto, con capacidad de recordar frases de conversaciones de personas, que suceden alrededor del dormitorio, durante ese estado mental tipo zombie.
-22. Uso dispositivos tipo micrófono en cocina de la casa, para registrar conversaciones y mientras se escucha las noticias, Canal 6 - Noticias Repretel, para uso de Inteligencia Artificial del noticiero.
-23. Uso dispositivos para alterar funcionamiento de uno de los microondas de la cocina, funciona si estoy en un específico estado mental, por ejemplo: no ira, no pánico o despersonalización por drogas, de otro modo por más que activo el botón para iniciar no funciona.
-24. Uso dispositivos para reproducir sonido de grillo desde el patio de la casa antes y durante el dormir, a veces para anular el sueño y fastidiar, otros para inducir recuerdos mentales y estados de identidad del Transtorno de Identidad Disociativo - TID.
-25. Uso dispositivos con sonidos pasivos tipo "tlak" en cielorraso de la sala de estudio mientras uso mi laptop personal y computadora, para joder la paciencia e interferir en la realización de mis actividades y mientras estudio, a veces para generar el Transtorno de Déficit de Atención - TDA.
-26. Uso dispositivos sonido pasivo, en canoa del patio de la casa que hace sonido "pum" de lata retorcida, cuando la Inteligencia Artificial conectada con los dispositivos en mi cabeza, no pueden registrar el contexto que ocupan de las ondas del cerebro para sus experimentos.
-27. Uso dispositivos alarma de incendio como tipo sonido pasivo en Delegación Distrital de Policía de Guararí, cuando tengo estados psicóticos provocados por las drogas inyectadas en las madrugadas y noches, o por efectos secundarios de las pastillas/tabletas de cada mes, cerca del rango de esos dispositivos fuera de mi casa.
-28. Uso dispositivos alarma tipo sonido pasivo en Centro Cívico por la Paz Heredia Guararí, durante las noches.
-29. Uso dispositivos cámara de vigilancia tipo domo en calle, casi frente a la casa, por parte de la Municipalidad de Heredia. Dispositivo dañado al mes de funcionamiento en el barrio.
-30. Uso de dispositivos en mi ano y efectos secundarios de las inyecciones en las madrugadas y noches, tabletas/pastillas de cada mes, me provoca un poco de sangrado e incomodidad.
-31. Uso de dispositivos para hacer cortada en el lado derecho de los labios de la boca, en la comisura labial.
-32. Uso de dispositivos utilizados en la instalación eléctrica de bombillos y tomas corrientes en una parte de casa, relacionado con los dispositivos espias, que ocupan electricidad constante en el cielorraso, dispositivos que vulneran la seguridad en varias formas de mis dispositivos personales como laptops, computadoras y Smartphones. Una parte de la casa, la instalación eléctrica, de tomas corrientes de varias habitaciones, mi propio dormitorio y un baño, donde se debe funcionar a 110 voltios original, funciona a 12 voltios, no funciona como debería la red eléctrica. Cabe destacar mi sospecha de un dispositivo maestro especial, para control de otros dispositivos, en el cielorraso de ese baño, como punto estratégico de radiofrecuencia, y mi sospecha de dispositivos de radiofrecuencia especiales, en la casa de un vecino contiguo, para control de dispositivos en esta casa.
-33. Uso de dispositivos utilizados en la instalación eléctrica o contenidos en bombillos, para generar varias intensidades luminosas en los bombillos de alambre amarillos 100 Watts o 75 Watts; o en algunos bombillos tipo led - con circuito integrado, que emiten luz de varios colores, cuando cierro los párpados de los ojos.
-34. Uso de dispositivos de sirena carro tipo sonido de ambulancia / policía / bombero, a lo lejos en la misma comunidad de Guararí, también uso de motocicleta sin silenciador en escape de humo, para alertar la presencia de personas utilizando los Sistemas de Inteligencia Artificial conectados a los diferentes tipos de dispositivos en la casa, como marcador psicótico de estados psicóticos provocados por el uso de drogas inyectadas en las madrugadas y noches, para ese mismo día.
-35. Uso de dispositivos para reproducir voces de personas y música durante mis poluciones nocturnas o eyaculaciones, cada cierto período de semanas transcurridos, provocados algunas veces por drogas desconocidas para mi, en las pastillas/tabletas de Difenhidramina Clorhidrato.
-36. Uso de dispositivos para provocar dolor en la superficie del pecho, debajo de la piel, en el lado izquierdo del cuerpo, en diagonal como a menos de 5 centímetros hacia arriba y hacia el lado derecho de mi pezón izquierdo, sin llegar al centro del pecho, no provoca tipo calambre ni contracción del músculo del pecho, como los otros dispositivos en todo el cuerpo, parece una punzada superficial, respirar lento diafragmático para contrarrestar efecto, hasta detenerse.
-37. Uso de dispositivos en artefacto de aplanchar ropa - plancha, para sonar sonidos tipo ventilador u otro objetivo espía, sin estar conectado a la corriente eléctrica, ubicación sobre una mesa y ventana donde yo estoy mientras uso la laptop.
-38. Uso de ropa comprada y perfecto vendida, para tener olor a perro mojado y sucio, zapatos para tener olor a caca de humano o animal, para provocar recuerdos y flashback de los eventos sucedidos con un grupo cuadrilla de mujeres y hombres, en los buses de Guararí a San José, de la empresa La 400; buses Heredia a San José, de la empresa Busetas Heredianas; buses Guararí a Heredia, de la empresa Grupo Acuza; buses de San José a Cartago, de la empresa Lumaca, buses de la universidad Instituto Tecnológico de Costa Rica - Tec de Cartago, en los años 2011 y 2012, y Colegio Técnico Profesional de Heredia - Voca Heredia, en el año 2010.
+### Dispositivos tipo cámaras.
+
+1. [Cámaras] Uso dispositivos tipo cámaras de 1 milímetro inscrustados en paredes de habitaciones, recargadas por luz solar y luz bombillos.
+
+2. [Cámaras] Uso dispositivos tipo cámaras de 1 milímetro en anteojos personales.
+
+3. [Cámaras] Uso dispositivos tipo cámaras en circuitos integrados en los bombillos led de luz blanca.
+
+
+### Dispositivos en mi cuerpo.
+
+6. [Cuerpo - Todo] Uso dispositivos debajo de la piel en brazos, piernas, tronco y cara que hacen calambres o contracciones en los músculos para distraer de estados mentales y emocionales. También para la actividad nerviosa en dedos de las manos, pecho, axilas, nalgas. Sudor y goteo en las palmas de las manos y axilas, cuando el contexto del día es judicial.
+
+4. [Cuerpo - Cabeza] Uso dispositivos debajo de la piel del cabello de la cabeza, para registrar electroencefalografía, estimo que el inicio fue desde la Terapia Electroconvulsiva en 2017, por depresión severa, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+
+5. [Cuerpo - Cabeza] Uso dispositivos debajo de la piel del cabello de la cabeza, para emitir descarga eléctrica, desde el exterior al interior de zonas de lóbulos del cerebro.
+
+9. [Cuerpo - Cabeza] Uso dispositivos en el interior de cada oreja / oído para reproducir sonidos pasivos y ruido blanco, desde 2022. También hacer zumbido y vibrar.
+
+31. [Cuerpo - Cabeza] Uso de dispositivos para hacer cortada en el lado derecho de los labios de la boca, en la comisura labial.
+
+7. [Cuerpo - Brazos] Uso dispositivos en arterias o venas debajo de la piel en zonas cercanas entre el codo y el músculo bíceps braquial, para regular presión arterial.
+
+8. [Cuerpo - Brazos] Uso dispositivos para alterar funcionamiento de dispositivos tensiómetro de control de presión arterial digital, marca Microlife, alterando los resultados de números en pantalla cuando conviene, desde 2023.
+
+36. [Cuerpo - Tronco] Uso de dispositivos para provocar dolor en la superficie del pecho, debajo de la piel, en el lado izquierdo del cuerpo, en diagonal como a menos de 5 centímetros hacia arriba y hacia el lado derecho de mi pezón izquierdo, sin llegar al centro del pecho, no provoca tipo calambre ni contracción del músculo del pecho, como los otros dispositivos en todo el cuerpo, parece una punzada superficial, respirar lento diafragmático para contrarrestar efecto, hasta detenerse.
+
+30. [Cuerpo - Tronco] Uso de dispositivos en mi ano y efectos secundarios de las inyecciones en las madrugadas y noches, pastillas / tabletas de cada mes, me provoca un poco de sangrado e incomodidad.
+
+
+### Dispositivos durante la universidad.
+
+10. [Universidad - Año 2012] Uso dispositivos durante año 2012 y 2013 antes del primer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, uso de dispositivos hasta mayo del año 2013 (día del internamiento del 12 de mayo de 2013 al 07 de junio de 2013 - 1 mes), dispositivos capaz de mover sus piezas y ocultar sus cámaras de vigilancia usando agujeros en el cielorraso y hacer sonido pasivo "tlak" para fastidiar. Comienzo durante año 2012 cuando fui estudiante de segundo año de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica (estudiante universitario activo desde semestre 1 del año 2011 al semestre 2 del año 2012 - 2 años seguidos). Dispositivos en cielorraso de la casa anexa que se alquila en la misma propiedad, en 2012 era una única casa.
+
+11. [Universidad - Año 2012] Uso dispositivos año 2012, tipo micrófono dentro de un parlante grande de equipo de sonido radiofónico, colocado en la cocina de la casa, durante segundo año de ser estudiante activo de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, para registrar conversaciones adicionales de mi persona, anexo a las conversaciones de grabaciones de audio obtenidas de mi celular personal, marca Nokia 2730, de voces de mi persona y de cuadrillas de mujeres hablando en buses, con el objetivo que esa cuadrilla de mujeres usen esas conversaciones de esos micrófonos en mi casa durante el trayecto de los buses: Buses ruta Guararí - San José, de la empresa La 400; buses ruta Heredia - San José, de la empresa Busetas Heredianas; buses ruta San José - Cartago, de la empresa Lumaca.
+
+12. [Universidad - Año 2012] Uso dispositivos año 2011 y 2012 de celulares, para reproducir sonidos de alerta de mensajes de texto, para notificar personas, sobre mensajes de texto sms enviados por mi persona, durante la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
+
+13. [Universidad - Año 2012] Uso dispositivos año 2012 de sonidos para alejar cuervos, en los parques municipales principales de las provincias de San José y Cartago, para alertar a personas alrededor del dispositivo, de mi llegada cercana a la zona, durante mi último año en la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
+
+
+### Dispositivos en la casa.
+
+14. [Casa - Dormitorio] Uso dispositivos, desde año 2016 incrustados en marcos de madera de ventanas que hacen sonidos pasivos tipo "tlak", para varias funciones de marcadores psicóticos, algunas veces para anular algún estado mental de pensamiento, recuerdo, psicótico; otras veces para joder la paciencia y fastidiar tipo hacer, estados emocionales de depresión, ansiedad, irritabilidad.
+
+20. [Casa - Dormitorio] Uso dispositivos dentro de colchón de mi cama del dormitorio.
+
+21. [Casa - Dormitorio] Uso dispositivos reproduciendo música o voces de personas de hechos, en contexto de hechos delictivos en días anteriores, mientras duermo en mi dormitorio durante las fases del sueño, evidenciando voces durante el comienzo de dormir, parecidas a las alucinaciones en el Transtorno del Sueño por Narcolepsia o las Alucinaciones Hipnagógicas, cuando se retiene el sueño, estado mental entre dormido y despierto, con capacidad de recordar frases de conversaciones de personas, que suceden alrededor del dormitorio, durante ese estado mental tipo zombie.
+
+35. [Casa - Dormitorio] Uso de dispositivos para reproducir voces de personas y música durante mis poluciones nocturnas o eyaculaciones, cada cierto período de semanas transcurridos, provocados algunas veces por drogas desconocidas para mi, en las pastillas / tabletas de Difenhidramina Clorhidrato.
+
+33. [Casa - Dormitorio] Uso de dispositivos utilizados en la instalación eléctrica o contenidos en bombillos, para generar varias intensidades luminosas en los bombillos de alambre amarillos de 100 Watts o 75 Watts; o en algunos bombillos tipo led con circuito integrado en su interior, que emiten luz de varios colores, cuando cierro los párpados de los ojos.
+
+22. [Casa - Cocina] Uso dispositivos tipo micrófono en cocina de la casa, para registrar conversaciones y mientras se escucha las noticias, Canal 6 - Noticias Repretel, para uso de Inteligencia Artificial del noticiero.
+
+23. [Casa - Cocina] Uso dispositivos para alterar funcionamiento de uno de los microondas de la cocina, funciona si estoy en un específico estado mental, por ejemplo: no ira, no pánico o no despersonalización, por drogas inyectadas en las madrugadas y noches, y por uso de pastillas / tabletas de cada mes, de otro modo por más que activo el botón para iniciar no funciona.
+
+17. [Casa - Baño] Uso dispositivos para reproducir sonidos pasivos de pitido tipo buzzer de Arduino y sonido de rebote de choque de metales en cielorraso, uno de los 2 dispositivos para cada baño, son 2 baños en la casa.
+
+18. [Casa - Baño] Uso dispositivos capaces de moverse y esconder en tuberías de desagüe de aguas de la ducha del baño en el patio de la casa.
+
+19. [Casa - Baño] Uso de dispositivos en tuberías de agua potable para minimizar y maximizar de golpe, la corriente de agua en movimiento, durante el duchado de mi cuerpo y durante el lavado de manos en pilas y lavamanos, una ducha del baño, donde pasa el evento, está sin conexión con dispositivos de calentador de agua.
+
+15. [Casa - Patio] Uso dispositivos desde año 2016, como sonidos pasivos usando lagartijas Gecko, en la casa, donde los vecinos y en la comunidad Guararí.
+
+24. [Casa - Patio] Uso dispositivos para reproducir sonido de grillo, desde el patio de la casa, antes y durante el dormir, a veces para anular el sueño y fastidiar, otros para inducir recuerdos mentales y estados de identidad del Transtorno de Identidad Disociativo - TID para fastidiar.
+
+26. [Casa - Patio] Uso dispositivos sonido pasivo, en canoa del patio de la casa, que hace sonido "pum" de lata retorcida, cuando la Inteligencia Artificial conectada con los dispositivos en mi cabeza, no pueden registrar el contexto que ocupan de las ondas del cerebro para sus experimentos, no ocurre algo que conviene que pase.
+
+25. [Casa - Sala Estudio] Uso dispositivos con sonidos pasivos tipo "tlak" en cielorraso de la sala de estudio mientras uso mi laptop personal y computadora, para joder la paciencia e interferir en la realización de mis actividades y mientras estudio, a veces para generar el Transtorno de Déficit de Atención - TDA.
+
+37. [Casa - Sala Estudio] Uso de dispositivos en artefacto de aplanchar ropa - plancha, para sonar sonidos tipo ventilador u otro objetivo espía, sin estar conectado a la corriente eléctrica, ubicación sobre una mesa y ventana donde yo estoy mientras uso la laptop.
+
+32. [Casa - Todo] Uso de dispositivos utilizados en la instalación eléctrica de bombillos y tomas corrientes en una parte de casa, relacionado con los dispositivos espias, que ocupan electricidad constante en el cielorraso, dispositivos que vulneran la seguridad en varias formas de mis dispositivos personales como laptops, computadoras y Smartphones. Una parte de la casa, la instalación eléctrica de tomas corrientes de varias habitaciones, mi propio dormitorio, y un baño, donde se debe funcionar a 110 voltios original, funciona a 12 voltios, no funciona como debería la red eléctrica. Cabe destacar mi sospecha de un dispositivo maestro especial, para control de otros dispositivos, en el cielorraso de ese baño, como punto estratégico de radiofrecuencia, y mi sospecha de dispositivos de radiofrecuencia especiales, en la casa de un vecino contiguo, para control de dispositivos en esta casa.
+
+
+### Dispositivos en la calle.
+
+16. [Calle] Uso de dispositivos desde año 2020 en Smartphone de gente conocidos y desconocidos para reproducir sonidos pasivos hipnótico, usando información registrada por los dispositivos en mi cabeza.
+
+27. [Calle] Uso dispositivos alarma de incendio como tipo sonido pasivo en Delegación Distrital de Policía de Guararí, cuando tengo estados psicóticos provocados por las drogas inyectadas en las madrugadas y noches, o por efectos secundarios de las pastillas / tabletas de cada mes, cerca del rango de esos dispositivos fuera de mi casa.
+
+28. [Calle] Uso dispositivos alarma tipo sonido pasivo en Centro Cívico por la Paz Heredia Guararí, durante las noches.
+
+29. [Calle] Uso dispositivos cámara de vigilancia tipo domo en calle, casi frente a la casa, por parte de la Municipalidad de Heredia. Dispositivo dañado al mes de funcionamiento en el barrio.
+
+34. [Calle] Uso de dispositivos de sirena carro tipo sonido de ambulancia / policía / bombero, a lo lejos en la misma comunidad de Guararí, también uso de motocicleta sin silenciador en escape de humo, para alertar la presencia de personas utilizando los Sistemas de Inteligencia Artificial conectados a los diferentes tipos de dispositivos en la casa, como marcador psicótico de estados psicóticos provocados por el uso de drogas inyectadas en las madrugadas y noches, para ese mismo día.
+
+38. [Calle] Uso de ropa comprada y perfecto vendida, para tener olor a perro mojado y sucio, zapatos para tener olor a caca de humano o animal, para provocar recuerdos y flashback de los eventos sucedidos con un grupo cuadrilla de mujeres y hombres, en los buses de Guararí a San José, de la empresa La 400; buses Heredia a San José, de la empresa Busetas Heredianas; buses Guararí a Heredia, de la empresa Grupo Acuza; buses de San José a Cartago, de la empresa Lumaca, buses de la universidad Instituto Tecnológico de Costa Rica - Tec de Cartago, en los años 2011 y 201; y Colegio Técnico Profesional de Heredia - Voca Heredia, en el año 2010.
+
 
 ## Parte 6. Marcador psicótico.
 
