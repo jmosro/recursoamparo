@@ -457,64 +457,111 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 ## Parte 7. CCSS.
 
 1. Listar nombres de las drogas inyectadas en nalgas y músculos deltoides de brazos, durante las madrugadas y noches. Información no está en la app del EDUS de la CCSS, en mi expediente personal digital accesible por mi persona en mi SmartPhone Android.
+
 2. Listar nombres de las drogas contenidas en las tabletas/pastillas de cada mes, ya que el medicamento me produce efectos secundarios, dudo sea el medicamento recetado por la psiquiatra. Medicamentos despachados por Farmacia del Hospital San Vicente de Paúl de Heredia, tienen la misma etiqueta de nombres que el EDUS, pero los efectos difieren cada ciertos meses. Información no está en la app del EDUS de la CCSS, en mi expediente personal digital accesible por mi persona en mi SmartPhone Android.
+
 3. Listar cuáles drogas inyectadas en las madrugadas y noches son de drogas ilegales o su equivalente sustancia, para sus experimentos y tratamientos.
+
 4. Accesar a los resultados de cada sacada de muestra de sangre en las madrugadas y noches. Información no está en la app del EDUS de la CCSS, en mi expediente personal digital accesible por mi persona en mi SmartPhone Android.
+
 5. Explicar los efectos secundarios, que hacer y que no de cada droga, contraindicaciones. Aclaratoria: ni la CCSS, ni el EDUS, ni la Policía, ni otras personas que conocen de esas drogas, ni la radio, ni la televisión, no me dan nombres, contraindicaciones, que hacer y no, de drogas inyectadas o cambios en las sustancias de las pastillas/tabletas, he comentado con la psiquiatra en las citas de control del Hospital de Heredia - Hospital San Vicente de Paúl, sobre efectos secundarios diferentes cada cierto tiempo, dudo sea el medicamento recetado, la psiquiatra me dice que es el mismo medicamento desde hace meses, parece que desconoce si hay cambios en el medicamento usando el mismo medicamento recetado por ella, desconoce el uso de las inyecciones de drogas en las madrugadas y noches. Buscando información sobre medicamentos antipsicóticos para esquizofrenia, en internet, uso de YouTube de Google, uso de Inteligencia Artificial como chat bot, tengo dudas de las verdaderas sustancias de esas drogas en mi cuerpo, desconocidas por mi y efectos secundarios para mi persona.
+
 6. Explicar por qué un Dictámen Médico del Hospital San Vicente de Paúl de Heredia, colocaron el medicamento Fluoxetina, ni en EDUS, ni en farmacia, ni las psiquiatras de citas de control, no me recetan ese medicamento durante 11 años de citas de control desde el año 2013. Información no está en la app del EDUS de la CCSS, en mi expediente personal digital accesible por mi persona en mi SmartPhone Android.
+
 7. Explicar por qué la Junta de Protección Social - JPS de la CCSS, utiliza mi información para elegir sus números de lotería, durante algunos meses.
+
 
 ## Parte 8. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
 
 1. Denunciar uso de sonidos pasivos y uso de personas de la policía principal una cuadrilla de mujeres, para joder, antes de cada internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Inicio de sonidos pasivos en el año 2012 durante universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, hasta primer internamiento en ese hospital en mayo del año 2013, continuación de sonidos pasivos y personas de la policía persiguiendo en años 2015 -  2016, hasta segundo internamiento en ese hospital en mayo del año 2017, continuación de sonidos pasivos para tercer internamiento en marzo del año 2020.
+
 2. Denunciar por qué el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, durante el internamiento 1 en mayo del año 2013 y el internamiento 2 en mayo del año  2017, no se me detalló los procesos judiciales durante cada internamiento, aclaratoria: no fue internamiento en Capemcol - Centro de Atención para Personas con Enfermedad Mental en Conflicto con la Ley, hubo varios procesos judiciales, mi percepción de ese Hospital para ocultar cosas de la policía, por que no les convenía a un grupo de personas tipo cuadrilla de la misma policía y no me quisieron detallar el proceso judicial.
+
 3. Explicar por qué en 2017 el Tec de Cartago - Instituto Tecnológico de Costa Rica, me demandó en la policía OIJ - Organismo de Investigación Judicial, y la demanda por violencia doméstica mientras usaban sonidos pasivos, radio, televisión, personas para joder.
+
 4. Explicar la relación de la modelo Miss Universo 2017 Helena Correa Usuga en 2017, coronada ganadora del concurso de belleza, durante mi segundo internamiento entre mayo a agosto de 2017, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, con una cuadrilla de mujeres de la policía que me persiguen durante la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica en 2011 y 2012.
+
 5. Explicar por qué el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres me realizaron Terapia Electroconvulsiva por depresión severa, en el segundo internamiento en 2017, si nunca en 3 internamientos desde 2013 hasta 2024, los psiquiatras me recetan antidepresivos. Información no está en la app del EDUS de la CCSS, en mi expediente personal digital accesible por mi persona en mi SmartPhone Android.
+
 
 ## Parte 9. Medios de comunicación.
 
 1. Explicar por qué en el EDUS de mi expediente personal, no está la información del diagnóstico médico que hablan en la radio y televisión usando mi información de sacadas de muestras de sangre en las madrugadas y noches.
+
 2. Explicar por qué usan sin mi consentimiento, mi información obtenida por todos los tipos de dispositivos para películas.
+
 3. Explicar por qué la información obtenida de todos los dispositivos se utilizan para informar a personas con actividades delictivas.
+
 4. Explicar por qué las noticias, Noticias Repretel y radios de Costa Rica, usan información obtenida por todos los tipos de dispositivos para su publicidad, orden de contexto noticias, música e Inteligencias Artificiales.
+
 5. Explicar cuál Ley de Costa Rica les permite usar mi información para sus Inteligencias Artificiales en Televisión y Radio.
+
 6. Explicar el objetivo de por qué las radios de Costa Rica usando los dispositivos espías en casa de mis padres, acceso sin consentimiento a mis dispositivos personales y dispositivos en mi cabeza para electroencefalograma, muestran música perfecto dirigida con referencia a "amor", ocultando hechos que han ocurrido años anteriores desde el año 2010. Durante los años 2011 y 2012 durante mis estudios en la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica; también durante los años 2015, 2016 y 2017 durante mis primeros trabajos o empleos formales en el ámbito - sector laboral, en 3 empresas diferentes; y durante el año 2016 con un curso cursado de CCNA 1 Redes en la universidad Universidad de Costa Rica, de la sede San Pedro de Montes de Oca, San José. Ocurriendo: una cuadrilla de mujeres mostraban odio hacia mi persona y odio a unos señores llamados: Jose Alberto y Jose Pablo de TI - Tecnologías de la Información de una empresa, que tienen que ver con hackeos a mis datos, donde cuando la radio encendida en los buses y esos señores (Jose) de Tecnologías de la Información, mostraban información de esas mujeres, esas mujeres me odian y arremeten contra mi en varias formas de violencia. Creando un ambiente en los buses de guerra y en las paradas, donde a veces amo y odio a esas mujeres y a esos 2 señores de Tecnologías de la Información; esas mujeres me aman y odian, y esos señores de Tecnologías de la Información; esos señores Jose, de Tecnologías de la Información aman y odian a esas mujeres y a mi persona; donde mi percepción es de que esos señores "Jose", su objetivo oculto es de hacer una guerra y campo militar de Guararí. Donde las radios y televisoras de Costa Rica para sus Inteligencias Artificiales basado en la vida de de mi persona y esas cuadrilla de mujeres, como hipocresía de mostrar solo amor hacia mi persona, perfecto dirigida con sus dispositivos espiadores, ocultando hechos anteriores tipo mentiras, como forma de tapar el Sol con un dedo.
+
 
 ## Parte 10. Policías.
 
 1. Explicar por qué se desestimó mi demanda judicial en la policía OIJ - Organismo de Investigación Judicial, denuncia el 13 de diciembre de 2023, número 23-009077-0059-PE.
+
 2. Listar cada caso judicial y de la policía dónde se usa música y audios en la noche mientras duermo, usando sus diferentes tipos de dispositivos, usando mi dispositivo personal de Smartphone Android, dispositivos en mi cabeza para obtener acierto de actividad de electroencefalografía, en esos procesos judiciales.
+
 3. Listar los Recursos de Amparo, Hábeas Corpus y Recursos de Inconstitucionalidad contra Leyes, interpuestos por otras personas conexo a mi persona, dónde no he sido notificado de esos procesos.
+
 4. Explicar la relación de un caso judicial de una mujer que se separa de su esposo y hablan en la radio año 2024, conversaciones de pasajeros en transporte público tipo bus año 2012 y 2017, relacionada a una causa judicial de mi persona con esa mujer, donde no he sido notificado de ese proceso judicial, inició durante la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica en el año 2011 a 2012.
+
 5. Explicar un accidente de tránsito de un niño en el año 2012, participación de personas importantes de la Policía de Tránsito, durante la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica en el año 2011 y 2012, como parte de las tramas de conversaciones que me culpan en una demanda judicial de conversaciones de una cuadrilla de mujeres en el año 2012 y 2017, durante el viaje en los buses de San José a Guararí, de la empresa La 400, buses de San José a Cartago, de la empresa Lumaca, y buses San José a San Pedro de Montes de Oca. No he sido notificado de esa demanda judicial de esa cuadrilla de mujeres.
+
 6. Explicar por qué una mujer con un niño con enfermedad rara, lo usaban para justificar el uso de mi información en las radios de Costa Rica, una cuadrilla de mujeres que me persiguen en los buses de San José a Cartago, de la empresa Lumaca, durante el año 2012 durante la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, cuando esa mujer y niño iban en el mismo bus, esa cuadrilla de mujeres se comportaban dosiles, sin violencia verbal, no se vengaban de mi ese día, usando mi información para sus verdades mentiras, en conversaciones gritadas dentro del viaje en bus, hipocresía de personas.
+
 7. Detallar la Ley de Costa Rica, que permite a personas utilizar mi información para temas judiciales y de policía en buses y otros lugares, personas con drogas y otros delitos, desde el año 2010 cuando estudiaba en el Colegio Técnico Profesional de Heredia - Voca Heredia, cuando estudiaba en los años 2011-2012 Instituto Tecnologico de Costa Rica - Tec de Cartago, hasta la fecha actual 2024, con uso de Inteligencias Artificiales.
+
 8. Denunciar desde 2023 a un grupo de personas usando mi información, la radio, partidos de fútbol, hay días que me ponen en peligro para sus "wicked games de amor", drogas, armas de fuego, tiroteos en la comunidad, delitos de otras personas, usando la información obtenidos por todos los tipos de dispositivos espías, bloqueado mis comunicaciones, usando mi identidad.
+
 9. Explicar por qué no se me notificó de la investigación del caso del robo a las bóvedas de dinero al Banco Nacional de Costa Rica en octubre y noviembre de 2023, mientras usaron mi información una cuadrilla de personas, para ese proceso de investigación.
+
 10. Denunciar sospecha de uso de mi número celular para Sinpe Móvil para actividades benéficas y actividades delictivas de personas, usando mi identidad sin consentimiento. Una vez, recibí un Sinpe Móvil de una mujer, según ella por mensaje de audio: "..., no me gusta perder, ...", le realicé el reintegro de dinero a la mujer, ese movimiento de dinero considero una doble intención de un grupo de personas.
+
 11. Denunciar que mi vecino me vigila, usando los diferentes tipos de dispositivos espías.
+
 12. Demandar judicial por violencia doméstica, económica, psicológica contra mi papá, por violencia contra mi mamá, recibiendo instrucciones de algunas personas para hacer esa violencia.
+
 13. Denunciar la participación de profesores del Tec de Cartago - Instituto Tecnológico de Costa Rica en el año 2011 y 2012, usando técnicas de hackeo hacía sus estudiantes para obtener información y usar esa información en Sitios Web para crear perfiles con esa información y publicidad, en complicidad de una cuadrilla de mujeres usando también esa información de mi y de los estudiantes que han hackeado en esos años, perfiles de juegos y amigos falsos en redes sociales. Un profesor usó un pseudónimo único en la internet que sólo yo sabía, para crear un perfil de una tortuga enojada referenciándome a mi y otros estudiantes hackeados por ellos, información única y sin compartir a nadie en mi dispositivo celular Nokia 2730 y computadora Desktop, usos en sus comentarios y usos de publicidad, perfiles eliminados tras mi primer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres en 2013.
+
 14. Explicar por qué en la Demanda Judicial Penal del Tec de Cartago - Instituto Tecnológico de Costa Rica, demanda número 17-001627-0058-PE, los profesores mencionados en esa denuncia judicial, mencionan haber sido estudiante de ellos y no recuerdan más de mi. No mencionan que ellos y ellas estaban recibiendo patronicio de ciertas fuerzas de Policía para realizar un seguimiento de tipo hackeo a mi persona en conjunto de algunos estudiantes que no se mencionan en esa denuncia penal en los años 2011 y 2012.  Que al año 2017 todavía esos estudiantes cursaban en esa universidad y saben quién soy, lo que pasaba en clases, en 2017 antes del segundo internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, y antes de la denuncia Judicial en el OIJ - Organismo de Investigación Judicial en Cartago, desde 2015, 2016 y 2017 volvieron a hacer lo mismo, de hackearmen y usar esa información con una cuadrilla de mujeres, drogas y delincuencia, las televisoras y radios de Costa Rica, las personas en redes sociales y videojuegos con información íntima y para publicidad basados en mi vida privada, obtenidos por los dispositivos espías en casa de mis padres, para fastidiar mi paciencia y tolerancia, tenía planes de reingresar a esa universidad pero no continúe después de presentarme personal el 25 de mayo de 2017, al Departamento de Orientación y Psicología de esa universidad, para saber cuál trámite tengo que hacer para el reingreso, día que se referencia de la amenaza de bomba en esa institución educativa.
+
 15. Denunciar que una cuadrilla de mujeres organizadas utilizaban e utilizan información obtenida por dispositivos espías y por hackeo a mis dispositivos personales desde el año 2010, manteniendose hasta este año 2024, 14 años, desde cuando era estudiante del VOCA de Heredia - Colegio Técnico Profesional de Heredia en el año 2008 iniciando en 2010 al cumplir 18 años y ser mayor de edad, para usar esa información contra mi mismo en sus acciones físicas, planes con otras personas y comentarios por boca, comentarios durante algunos años gritados en los buses donde yo voy de pasajero también, esa cuadrilla principal de mujeres y algunos hombres en organización de otras personas involucradas y uso de delincuentes usando esa información privada y pública, donde muestran odio hacia mi persona y yo les demuestro mi odio hacia ellos y ellas, acciones que se repiten cada cierto períodos de tiempo en años, finalizando hasta cada internamiento de mi persona en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, 3 períodos de tiempo en 3 internamientos en ese Hospital Psiquiátrico.
+
 
 ## Parte 11. Vulnerar mis dispositivos personales.
 
 1. Denunciar acceso a mi dormitorio forzando seguro de llave en llavin de mano, tranca de tipo picaporte, objetos de zapatos en la puerta, objetos sobre el llavin de mano de la puerta.
+
 2. Denunciar alteración de mi ubicación GPS real (Sistema de Posicionamiento Global) del SmartPhone Android en Google Maps (aplicación de rutas de caminos en mapas, registro de lugares visitados y carreteras transitadas) y Google Fit (aplicación para registro de actividades de ejercicio físico, donde se registra cantidad de pasos caminados usando mapas), en días convenientes para algunas personas.
+
 3. Denunciar mal funcionamiento y desactivación, de dispositivos o sensores biométricos de seguridad, tipo huella digital en mi Smartphone Android, en días convenientes para algunas personas, durante meses de meses.
+
 4. Denunciar anomalías en comunicaciones de la aplicación WhatsApp, recibo mensajes y llamadas en la misma aplicación, de números desconocidos de otros países, tratando de obtener información, algunos días parece que tengo bloqueado o interceptado mis comunicaciones con ciertos contactos.
+
 5. Denunciar llamadas recurrentes de una empresa llamada Monge, a mi número telefónico y de mis familiares para obtener información, en días convenientes para algunas personas.
+
 6. Denunciar software espía en mi dispositivo Smartphone Android, para obtener información de mi persona para las Inteligencias Artificiales de radios de Costa Rica, televisión Costarricense.
+
 7. Denunciar complicidad de mi papá, hermanos y vecinos para vulnerar mis dispositivos y acceso sin consentimiento a mi dormitorio forzando seguros.
+
 8. Denunciar uso de dispositivos de tipo cámaras de vídeo y fotografía adaptados especiales, con alta capacidad de fotogramas por segundo capaz de detectar cada movimiento, de dedos en las teclas del teclado, de la laptop, en paredes, cielorraso, anteojos y bombillos Led, para obtener contraseñas de usuario, contraseñas de encriptación del Sistema Operativo basado en Linux y códigos OTP de mi SmartPhone Android, ya que Android no permite Screenshots ni videos durante el uso de aplicaciones OTP como Google Authenticator o Microsoft Authenticator.
+
 9. Denunciar hackeo tipo, Ataque de Día 0, no autorizado, usando dispositivos Bluetooth y dispositivos tipo cámaras de vídeo y fotografía, contra dispositivos de la laptop que utilizo, para instalar software espía cambiando los repositorios oficiales para actualizar el Sistema Operativo y aplicaciones, durante la instalación del Sistema Operativo Live-CD Ubuntu, Live-CD Linux Mint, Live-CD Debian, cabe destacar que he tenido que reinstalar el Sistema Operativo más de 20 veces durante varios años, tratando de evitar ese tipo de ataque informático. He tenido que resguardar la laptop, con llave en mi dormitorio, y a pesar de esas medidas de seguridad implementado por mi, siguen accediendo sin mi consentimiento a mis datos en la laptop, para propósitos de conectar sus Sistemas de Inteligencias Artificiales y usar mi información.
+
 10. Denunciar tráfico inusual de datagramas, en la red tipo Lan de la casa, a pesar de tratar de mejorar la Ciberseguridad del Punto de Acceso y Enrutador.
+
 11. Denunciar durante el año 2017, un tráfico en modo monitor Wireless, de más de 10 dispositivos de formato WiFi, 2.4 G, sin identificar el destino y origen del Punto de Acceso real, de los vecinos o dispositivos dentro del alcance de rango radio en la casa, al que están conectados esos dispositivos, sin estructura lógica de secuencia numérica, de constante envío de tráfico por segundo, como si fuese tráfico constante de cámaras de videovigilancia, alrededor de cada habitación de la casa.
+
 12. Denunciar sospecha de uso de dispositivo tipo tecnología de Smartphone con tecnología 5G, en el cielorraso de una habitación y ventana, como dispositivo grabador de vídeo, no es el dispositivo en los circuitos dentro de bombillos led, es otra forma de dispositivos.
+
 13. Denunciar funcionamiento anómalo de la página Web radios.co.cr, dónde parece que el tráfico DNS está interceptado para cambiar el funcionamiento de la página original, en dias convenientes para algunas personas, página Web: https://radios.co.cr/
+
 14. Denunciar funcionamiento tipo hostil en la aplicación VLC, aplicación para reproducir música, donde usando Inteligencia Artificial, personas reproducen interceptado mi tráfico para reproducir audios para hostigar y acosar, acerca México, a pesar de tomar acciones para evitar ese funcionamiento cuando les conviene a algunas personas.
+
 
 ## Parte 12. Efectos secundarios de drogas desde el año 2020.
 
