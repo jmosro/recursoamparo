@@ -473,7 +473,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 ## Parte 8. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
 
-1. Denunciar uso de sonidos pasivos y uso de personas de la policía principal una cuadrilla de mujeres y hombres, para joder, antes de cada internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Inicio de sonidos pasivos en el año 2012 durante mis estudios en la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, hasta primer internamiento en ese hospital en mayo del año 2013, continuación de sonidos pasivos y personas de la policía persiguiendo en años 2015, 2016 y 2017, hasta segundo internamiento en ese hospital en mayo del año 2017, continuación de sonidos pasivos y presencia de esa cuadrilla de mujeres y hombres, para tercer internamiento en marzo del año 2020.
+1. Denunciar uso de sonidos pasivos y uso de personas de la policía, principal una cuadrilla de mujeres y hombres, para joder, antes de cada internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Inicio de sonidos pasivos en el año 2012 durante mis estudios en la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, hasta primer internamiento en ese hospital en mayo del año 2013, continuación de sonidos pasivos y personas de la policía persiguiendo en años 2015, 2016 y 2017, hasta segundo internamiento en ese hospital en mayo del año 2017, continuación de sonidos pasivos y presencia de esa cuadrilla de mujeres y hombres, para tercer internamiento en marzo del año 2020.
 
 2. Denunciar por qué el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, durante el internamiento 1 en mayo del año 2013 y el internamiento 2 en mayo del año 2017, no se me detalló los procesos judiciales durante cada internamiento, aclaratoria: No fue internamiento en CAPEMCOL - Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley, en la Uruca, cumplí internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, en Pavas. Hubo varios procesos judiciales, mi percepción de ese Hospital para ocultar cosas de la policía, por que no les convenía a un grupo de personas tipo cuadrilla de la misma policía y no me quisieron detallar el proceso judicial.
 
@@ -486,17 +486,29 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 ## Parte 9. Medios de comunicación.
 
-1. Explicar por qué en el EDUS de mi expediente personal, no está la información del diagnóstico médico que hablan en la radio y televisión usando mi información de sacadas de muestras de sangre en las madrugadas y noches.
+1. Explicar por qué en el EDUS, de mi expediente personal, donde yo puedo acceder desde mi Smartphone Android, no está la información del diagnóstico médico que hablan en la radio y televisión, usando mi información de sacadas de muestras de sangre en las madrugadas y noches.
 
-2. Explicar por qué usan sin mi consentimiento, mi información obtenida por todos los tipos de dispositivos para películas.
+2. Explicar por qué usan sin mi consentimiento, mi información obtenida por todos los tipos de dispositivos, para películas y actores.
 
-3. Explicar por qué la información obtenida de todos los dispositivos se utilizan para informar a personas con actividades delictivas.
+3. Explicar por qué la información obtenida de todos los dispositivos, se utilizan para informar a personas con actividades delictivas.
 
-4. Explicar por qué las noticias, Noticias Repretel y radios de Costa Rica, usan información obtenida por todos los tipos de dispositivos para su publicidad, orden de contexto noticias, música e Inteligencias Artificiales.
+4. Explicar por qué las noticias, Canal 6 - Noticias Repretel y radios de Costa Rica, usan información obtenida por todos los tipos de dispositivos para su publicidad, orden de contexto noticias, música y Sistemas de Inteligencia Artificial.
 
-5. Explicar cuál Ley de Costa Rica les permite usar mi información para sus Inteligencias Artificiales en Televisión y Radio.
+5. Explicar cuál Ley de Costa Rica les permite usar mi información para sus Sistemas de Inteligencia Artificial en Televisión y Radio.
 
-6. Explicar el objetivo de por qué las radios de Costa Rica usando los dispositivos espías en casa de mis padres, acceso sin consentimiento a mis dispositivos personales y dispositivos en mi cabeza para electroencefalograma, muestran música perfecto dirigida con referencia a "amor", ocultando hechos que han ocurrido años anteriores desde el año 2010. Durante los años 2011 y 2012 durante mis estudios en la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica; también durante los años 2015, 2016 y 2017 durante mis primeros trabajos o empleos formales en el ámbito - sector laboral, en 3 empresas diferentes; y durante el año 2016 con un curso cursado de CCNA 1 Redes en la universidad Universidad de Costa Rica, de la sede San Pedro de Montes de Oca, San José. Ocurriendo: una cuadrilla de mujeres mostraban odio hacia mi persona y odio a unos señores llamados: Jose Alberto y Jose Pablo de TI - Tecnologías de la Información de una empresa, que tienen que ver con hackeos a mis datos, donde cuando la radio encendida en los buses y esos señores (Jose) de Tecnologías de la Información, mostraban información de esas mujeres, esas mujeres me odian y arremeten contra mi en varias formas de violencia. Creando un ambiente en los buses de guerra y en las paradas, donde a veces amo y odio a esas mujeres y a esos 2 señores de Tecnologías de la Información; esas mujeres me aman y odian, y esos señores de Tecnologías de la Información; esos señores Jose, de Tecnologías de la Información aman y odian a esas mujeres y a mi persona; donde mi percepción es de que esos señores "Jose", su objetivo oculto es de hacer una guerra y campo militar de Guararí. Donde las radios y televisoras de Costa Rica para sus Inteligencias Artificiales basado en la vida de de mi persona y esas cuadrilla de mujeres, como hipocresía de mostrar solo amor hacia mi persona, perfecto dirigida con sus dispositivos espiadores, ocultando hechos anteriores tipo mentiras, como forma de tapar el Sol con un dedo.
+6. Explicar el objetivo de por qué las radios de Costa Rica, usando los dispositivos espías en casa donde vivo, acceso sin consentimiento a mis dispositivos personales y dispositivos en mi cabeza para electroencefalograma, muestran música perfecto dirigida con referencia a "amor".
+
+   - Ocultando hechos que han ocurrido años anteriores, desde los años aproximados de 2009 y 2010, durante mis estudios en el VOCA de Heredia - Colegio Técnico Profesional de Heredia.
+   - Durante los años 2011 y 2012, durante mis estudios en la universidad TEC de Cartago - Instituto Tecnológico de Costa Rica.
+   - También durante los años 2015, 2016 y 2017, durante mis primeros trabajos o empleos formales en el ámbito sector laboral, en 3 empresas diferentes.
+   - Durante el año 2016 con un curso cursado de Cisco CCNA 1 - Redes de Computadora, en la universidad Universidad de Costa Rica, de la sede San Pedro de Montes de Oca, San José.
+
+7. Explicar la relación de unos sujetos, con una cuadrilla de mujeres, mostraban odio hacia mi persona y odio a unos señores llamados: Jose Alberto y Jose Pablo de TI - Tecnologías de la Información de una empresa, que tienen que ver con hackeos a mis datos y a sus datos. Uso de esos datos, información y conocimiento, en los medios de comunicación. Cuando la radio encendida en los buses y esos señores (Jose) de Tecnologías de la Información, mostraban información de esas mujeres, esas mujeres y hombres me odian y arremeten contra mi, en varias formas de violencia. Creando un ambiente en los buses de guerra y en las paradas.
+
+   - Donde, a veces amo y odio a esas mujeres y a esos 2 señores de Tecnologías de la Información.
+   - Donde, esas mujeres me aman y odian, aman y odian a esos señores de Tecnologías de la Información.
+   - Donde, esos señores Jose, de Tecnologías de la Información aman y odian a esas mujeres y a mi persona, donde mi percepción es de que esos señores "Jose", su objetivo oculto es de hacer una guerra y campo militar de Guararí.
+   - Donde, las radios y televisoras de Costa Rica, para sus Sistemas de Inteligencia Artificial, basado en la vida de de mi persona y esas cuadrilla de mujeres, como hipocresía de mostrar sólo amor hacia mi persona, perfecto dirigida con sus dispositivos espiadores, ocultando hechos anteriores tipo mentiras, como forma de tapar el Sol con un dedo.
 
 
 ## Parte 10. Policías.
