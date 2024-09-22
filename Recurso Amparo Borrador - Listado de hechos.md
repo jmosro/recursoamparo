@@ -501,7 +501,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
    - Ocultando hechos que han ocurrido años anteriores, desde los años aproximados de 2009 y 2010, durante mis estudios en el VOCA de Heredia - Colegio Técnico Profesional de Heredia.
    - Durante los años 2011 y 2012, durante mis estudios en la universidad TEC de Cartago - Instituto Tecnológico de Costa Rica.
    - Durante los años 2015, 2016 y 2017, durante mis primeros trabajos o empleos formales en el ámbito sector laboral, en 3 empresas diferentes.
-   - Durante el año 2016 durante un curso cursado de Cisco CCNA 1 - Redes de Computadora, en la universidad Universidad de Costa Rica, de la sede San Pedro de Montes de Oca, San José.
+   - Durante el año 2016, en un curso de Cisco CCNA 1 - Redes de Computadora, en la universidad Universidad de Costa Rica, de la sede San Pedro de Montes de Oca, San José.
 
 7. Explicar la relación de unos sujetos, con una cuadrilla de mujeres, mostraban odio hacia mi persona y odio a unos señores llamados: Jose Alberto y Jose Pablo de TI - Tecnologías de la Información de una empresa, que tienen que ver con hackeos a mis datos y a sus datos. Uso de esos datos, información y conocimiento, en los medios de comunicación. Cuando la radio encendida en los buses y esos señores (Jose) de Tecnologías de la Información, mostraban información de esas mujeres, esas mujeres y hombres me odian y arremeten contra mi, en varias formas de violencia. Creando un ambiente en los buses de guerra y en las paradas.
 
