@@ -41,11 +41,11 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 5. Fecha egreso: 30 marzo 2020.
 6. Diagnóstico: Esquizofrenia Paranoide.
 7. Medicamentos en epicrisis.
-   - Risperidona 4 mg VO HS. Antipsicótico segunda generación.
-   - Difenhidramina 50 mg VO BID. Antihistamínico, para dormir, 2 veces al día.
+    - Risperidona 4 mg VO HS. Antipsicótico segunda generación.
+    - Difenhidramina 50 mg VO BID. Antihistamínico, para dormir, 2 veces al día.
 8. Medicamentos durante el internamiento.
-   - Inyección intramuscular de Haloperidol sólo por 3 días seguidos, cada día. 2 días de los 3 días, uso de inyección antihistamina para contrarrestar fuerte agitación nerviosa por el antipsicótico Haloperidol. No está en documento de referencia de epicrisis, desconozco las dosis. Antipsicótico de primera generación.
-   - Uso por unos días de pastillas/tabletas Trifluoperazina. No está en documento de referencia de epicrisis, desconozco las dosis. Antipsicótico de primera generación.
+    - Inyección intramuscular de Haloperidol sólo por 3 días seguidos, cada día. 2 días de los 3 días, uso de inyección antihistamina para contrarrestar fuerte agitación nerviosa por el antipsicótico Haloperidol. No está en documento de referencia de epicrisis, desconozco las dosis. Antipsicótico de primera generación.
+    - Uso por unos días de pastillas/tabletas Trifluoperazina. No está en documento de referencia de epicrisis, desconozco las dosis. Antipsicótico de primera generación.
 9. Otros medicamentos en citas de control psiquiatría.
     - Biperideno Hidrocloruro 2 tabletas/pastillas de 2 mg cada una. Anticolinérgico, contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
 10. Otros medicamentos sin especificar.
@@ -56,188 +56,188 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 ## Parte 2. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mi persona.
 
 0. Listado expedientes policía.
-   - 2023 - 23-009077-0059-PE - Penal
-   - 2017 - 17-001627-0058-PE CAPEMCOL - Penal
-   - 2017 - 17-000953-0651-VD CAPEMCOL - Violencia Doméstica
-   - 2017 - 17-000916-0651-VD CAPEMCOL - Violencia Doméstica
+    - 2023 - 23-009077-0059-PE - Penal
+    - 2017 - 17-001627-0058-PE CAPEMCOL - Penal
+    - 2017 - 17-000953-0651-VD CAPEMCOL - Violencia Doméstica
+    - 2017 - 17-000916-0651-VD CAPEMCOL - Violencia Doméstica
 
 1. Expediente Registro Policía: 23-009077-0059-PE
-   - Fecha entrada: 19/12/2023
-   - Oficina judicial: FISCALÍA ADJUNTA DE HEREDIA (PENAL)
-   - Clase: PRINCIPAL - Investigación O.I.J.
-   - Resumen: Denuncia por experimentos de un grupo de personas humanos.
+    - Fecha entrada: 19/12/2023
+    - Oficina judicial: FISCALÍA ADJUNTA DE HEREDIA (PENAL)
+    - Clase: PRINCIPAL - Investigación O.I.J.
+    - Resumen: Denuncia por experimentos de un grupo de personas humanos.
 
 2. Expediente Registro Policía: 17-001627-0058-PE CAPEMCOL
-   - Fecha entrada: 14/07/2017
-   - Oficina judicial: FISCALÍA ADJUNTA DE CARTAGO (PENAL)
-   - Clase: PRINCIPAL - Información del Organismo de Investigación Judicial
-   - Resumen: Amenaza de bomba y tiroteo en la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
-   - Referencia: Referencia de internamiento en CAPEMCOL - Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley, internamiento cumplido en Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
-   - Otra información: No se me pidio declarar a los oficiales del OIJ - Organismo de Investigación Judicial, mi versión de lo sucedido, no tube acompañamiento de Oficiales en el proceso.
-   - Otra información: Estimo inicio dispositivos "chips" en mi cabeza durante las 6 sesiones / días de Terapia Electroconvulsiva en el mismo Hospital.
+    - Fecha entrada: 14/07/2017
+    - Oficina judicial: FISCALÍA ADJUNTA DE CARTAGO (PENAL)
+    - Clase: PRINCIPAL - Información del Organismo de Investigación Judicial
+    - Resumen: Amenaza de bomba y tiroteo en la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
+    - Referencia: Referencia de internamiento en CAPEMCOL - Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley, internamiento cumplido en Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+    - Otra información: No se me pidio declarar a los oficiales del OIJ - Organismo de Investigación Judicial, mi versión de lo sucedido, no tube acompañamiento de Oficiales en el proceso.
+    - Otra información: Estimo inicio dispositivos "chips" en mi cabeza durante las 6 sesiones / días de Terapia Electroconvulsiva en el mismo Hospital.
 
 3. Expediente Registro Policía: 17-000953-0651-VD CAPEMCOL
-   - Fecha entrada: 07/07/2017
-   - Oficina judicial: JUZGADO PENAL DE HEREDIA
-   - Clase: PRINCIPAL - Desestimación
-   - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
+    - Fecha entrada: 07/07/2017
+    - Oficina judicial: JUZGADO PENAL DE HEREDIA
+    - Clase: PRINCIPAL - Desestimación
+    - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
 
 4. Expediente Registro Policía: 17-000953-0651-VD CAPEMCOL
-   - Fecha entrada: 01/06/2017
-   - Oficina judicial: FISCALÍA ADJUNTA DE HEREDIA (PENAL)
-   - Clase: PRINCIPAL - Incompetencia o Remisión a otra Jurisdicción
+    - Fecha entrada: 01/06/2017
+    - Oficina judicial: FISCALÍA ADJUNTA DE HEREDIA (PENAL)
+    - Clase: PRINCIPAL - Incompetencia o Remisión a otra Jurisdicción
 
 5. Expediente Registro Policía: 17-000953-0651-VD CAPEMCOL
-   - Fecha entrada: 31/05/2017
-   - Oficina judicial: JUZGADO CONTRA LA VIOLENCIA DOMÉSTICA DE HEREDIA
-   - Clase: PRINCIPAL - VIOLENCIA DOMÉSTICA
-   - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
+    - Fecha entrada: 31/05/2017
+    - Oficina judicial: JUZGADO CONTRA LA VIOLENCIA DOMÉSTICA DE HEREDIA
+    - Clase: PRINCIPAL - VIOLENCIA DOMÉSTICA
+    - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
 
 6. Expediente Registro Policía: 17-000916-0651-VD CAPEMCOL
-   - Fecha entrada: 25/05/2017
-   - Oficina judicial: JUZGADO CONTRA LA VIOLENCIA DOMÉSTICA DE HEREDIA
-   - Clase: PRINCIPAL - VIOLENCIA DOMÉSTICA
-   - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
+    - Fecha entrada: 25/05/2017
+    - Oficina judicial: JUZGADO CONTRA LA VIOLENCIA DOMÉSTICA DE HEREDIA
+    - Clase: PRINCIPAL - VIOLENCIA DOMÉSTICA
+    - Resumen: Violencia doméstica por uso de dispositivos para emitir sonidos pasivos.
 
 
 ## Parte 3. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mis familiares.
 
 0. Listado expedientes policía.
-   - 2004 - 04-000176-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
-   - 2005 - 05-005382-0497-TR - Juzgado Transito - Atropello de vehículo
-   - 2006 - Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres - Internamiento de mi papá - Intento de suidicio
-   - 2006 - 06-001476-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
-   - 2007 - 07-000012-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
-   - 2007 - 07-000218-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
-   - 2009 - 09-000409-0651-VD - Juzgado Violencia Doméstica - Violencia doméstica entre papá y mamá
-   - 2009 - 09-000440-0651-VD - Juzgado Violencia Doméstica - Violencia doméstica entre mamá y papá
-   - 2013 - 13-001882-0369-PE - Fiscalía Adjunta - Conflicto entre vecinos
-   - 2013 - 13-000876-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
-   - 2018 - 18-003751-0059-PE - Delegación Regional de Heredia - Asalto a hermano
-   - 2022 - 22-000621-0059-PE - Delegación Regional de Heredia - Asalto a hermano
+    - 2004 - 04-000176-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
+    - 2005 - 05-005382-0497-TR - Juzgado Transito - Atropello de vehículo
+    - 2006 - Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres - Internamiento de mi papá - Intento de suidicio
+    - 2006 - 06-001476-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
+    - 2007 - 07-000012-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
+    - 2007 - 07-000218-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
+    - 2009 - 09-000409-0651-VD - Juzgado Violencia Doméstica - Violencia doméstica entre papá y mamá
+    - 2009 - 09-000440-0651-VD - Juzgado Violencia Doméstica - Violencia doméstica entre mamá y papá
+    - 2013 - 13-001882-0369-PE - Fiscalía Adjunta - Conflicto entre vecinos
+    - 2013 - 13-000876-0807-FC - Juzgado Contravencional - Conflicto entre vecinos
+    - 2018 - 18-003751-0059-PE - Delegación Regional de Heredia - Asalto a hermano
+    - 2022 - 22-000621-0059-PE - Delegación Regional de Heredia - Asalto a hermano
 
 
 ### Escuela Finca Guararí. 1998 (6 años edad) a 2004 (12 años edad).
 
 1. Expediente Registro Policía, copia papel.
-   - Expediente número: 04-000176-0807-FC
-   - Año: 2004. 12/02/2004
-   - Oficina judicial: Juzgado Contravencional de Heredia.
-   - Resumen: Conflicto entre vecinos. Mi mamá y papá denuncian a una vecina. Palabras obscenas, daño a la vivienda.
-   - Otra información: Uso de la policía Fuerza Pública. Uso de un inspector del Ministerio de Salud.
-   - Otra información: Yo, estudiante de 6to grado, de la Escuela Finca Guararí. 12 años edad.
+    - Expediente número: 04-000176-0807-FC
+    - Año: 2004. 12/02/2004
+    - Oficina judicial: Juzgado Contravencional de Heredia.
+    - Resumen: Conflicto entre vecinos. Mi mamá y papá denuncian a una vecina. Palabras obscenas, daño a la vivienda.
+    - Otra información: Uso de la policía Fuerza Pública. Uso de un inspector del Ministerio de Salud.
+    - Otra información: Yo, estudiante de 6to grado, de la Escuela Finca Guararí. 12 años edad.
 
 2. Expediente Registro Policía, copia papel.
-   - Expediente número: 04-000176-0807-FC
-   - Año: 2004. 26/08/2004
-   - Oficina judicial: Juzgado Contravencional de Heredia.
-   - Resumen: Conflicto entre vecinos. Mi mamá y papá denuncian a una vecina. Palabras obscenas, daño a la vivienda. Audiencia de conciliación, juicio oral y público, en los Tribunales de Justicia de Heredia.
-   - Otra información: Sin uso de la policía Fuerza Pública.
-   - Otra información: Yo, estudiante de 6to grado, de la Escuela Finca Guararí. 12 años edad.
+    - Expediente número: 04-000176-0807-FC
+    - Año: 2004. 26/08/2004
+    - Oficina judicial: Juzgado Contravencional de Heredia.
+    - Resumen: Conflicto entre vecinos. Mi mamá y papá denuncian a una vecina. Palabras obscenas, daño a la vivienda. Audiencia de conciliación, juicio oral y público, en los Tribunales de Justicia de Heredia.
+    - Otra información: Sin uso de la policía Fuerza Pública.
+    - Otra información: Yo, estudiante de 6to grado, de la Escuela Finca Guararí. 12 años edad.
 
 
 ### Colegio Liceo Los Lagos. 2005 (13 años edad) a 2007 (15 años edad).
 
 1. Expediente Registro Policía, copia papel.
-   - Expediente número: 04-000176-0807-FC
-   - Año: 2005. 13/06/2005
-   - Oficina judicial: Juzgado Contravencional de Heredia.
-   - Resumen: Conflicto entre vecinos. Conciliación masiva por amenazas. Mi mamá y papá denuncian a una vecina. Palabras obscenas, daño a la vivienda.
-   - Otra información: Sin uso de la policía Fuerza Pública.
-   - Otra información: Yo, estudiante de 7mo grado, del Colegio Liceo Los Lagos. 13 años edad.
+    - Expediente número: 04-000176-0807-FC
+    - Año: 2005. 13/06/2005
+    - Oficina judicial: Juzgado Contravencional de Heredia.
+    - Resumen: Conflicto entre vecinos. Conciliación masiva por amenazas. Mi mamá y papá denuncian a una vecina. Palabras obscenas, daño a la vivienda.
+    - Otra información: Sin uso de la policía Fuerza Pública.
+    - Otra información: Yo, estudiante de 7mo grado, del Colegio Liceo Los Lagos. 13 años edad.
 
 2. Expediente Registro Policía, copia papel. Tránsito.
-   - Expediente número boleta: 2005-036486
-   - Expediente número: 05-005382-0497-TR
-   - Año: 2005. 28/07/2005 Fecha accidente de tránsito.
-   - Año: 2005. 01/08/2005 Fecha declaración.
-   - Año: 2005. 11/11/2005 Fecha solicitud dictamen médico legal
-   - Año: 2006. 24/01/2006 Fecha audiencia dictamen médico legal
-   - Año: 2006. 26/01/2006 Fecha acta notificación fax
-   - Año: 2006. 09/02/2006 Fecha incompetencia por materia
-   - Año: 2006. 10/02/2006 Fecha acta notificación fax
-   - Año: 2006. 10/03/2006 Fecha envio documentación Poder Judicial, Ministerio Público de Heredia
-   - Año: 2006. 20/03/2006 Fecha pase auto, al Juez de Tránsito de Heredia
-   - Año: 2006. 03/04/2006 Fecha cédula citación
-   - Año: 2006. 27/04/2006 Fecha pase auto, al Ministerio Público de Heredia
-   - Año: 2006. 07/07/2006 Fecha petición envío documentos epicrisis del Hospital de Heredia, Registro Nacional, INS - Instituto Nacional de Seguros, a la Fiscalía Adjunta de Heredia
-   - Año: 2006. 24/08/2006 Fecha envío epicrisis del Hospital de Heredia
-   - Año: 2006. 02/11/2006 Fecha denuncia penal
-   - Año: 2006. 14/12/2006 Fecha declaración testigo
-   - Año: 2007. 19/02/2007 Fecha petición documentos a Complejo de Ciencias Médicas
-   - Año: 2007. 11/05/2007 Fecha entrega dictamen criminalístico
-   - Año: 2007. 23/10/2007 Fecha sobreseimiento a favor de la imputada
-   - Año: 2007. 23/10/2007 Fecha se ordena comunicar solicitud de sobreseimiento definitivo a la imputada
-   - Año: 2007. 06/11/2007 Fecha comunicación a fax, a abogada de papá de sobreseimiento a favor de la imputada
-   - Oficina judicial: Juzgado de Tránsito de Heredia.
-   - Resumen: Accidente de Tránsito. Atropello a mi papá al costado Este del Colegio Liceo Los Lagos.
-   - Otra información: Uso de la Policía de Tránsito el día del accidente.
-   - Otra información: Internamiento de mi papá en el Hospital del Trauma, del Instituto Nacional de Seguros, en la Uruca.
-   - Otra información: Yo, estudiante de 7mo grado (2005 - 13 años), 8vo grado (2006 - 14 años), 9vo grado (2007 - 15 años), del Colegio Liceo Los Lagos.
+    - Expediente número boleta: 2005-036486
+    - Expediente número: 05-005382-0497-TR
+    - Año: 2005. 28/07/2005 Fecha accidente de tránsito.
+    - Año: 2005. 01/08/2005 Fecha declaración.
+    - Año: 2005. 11/11/2005 Fecha solicitud dictamen médico legal
+    - Año: 2006. 24/01/2006 Fecha audiencia dictamen médico legal
+    - Año: 2006. 26/01/2006 Fecha acta notificación fax
+    - Año: 2006. 09/02/2006 Fecha incompetencia por materia
+    - Año: 2006. 10/02/2006 Fecha acta notificación fax
+    - Año: 2006. 10/03/2006 Fecha envio documentación Poder Judicial, Ministerio Público de Heredia
+    - Año: 2006. 20/03/2006 Fecha pase auto, al Juez de Tránsito de Heredia
+    - Año: 2006. 03/04/2006 Fecha cédula citación
+    - Año: 2006. 27/04/2006 Fecha pase auto, al Ministerio Público de Heredia
+    - Año: 2006. 07/07/2006 Fecha petición envío documentos epicrisis del Hospital de Heredia, Registro Nacional, INS - Instituto Nacional de Seguros, a la Fiscalía Adjunta de Heredia
+    - Año: 2006. 24/08/2006 Fecha envío epicrisis del Hospital de Heredia
+    - Año: 2006. 02/11/2006 Fecha denuncia penal
+    - Año: 2006. 14/12/2006 Fecha declaración testigo
+    - Año: 2007. 19/02/2007 Fecha petición documentos a Complejo de Ciencias Médicas
+    - Año: 2007. 11/05/2007 Fecha entrega dictamen criminalístico
+    - Año: 2007. 23/10/2007 Fecha sobreseimiento a favor de la imputada
+    - Año: 2007. 23/10/2007 Fecha se ordena comunicar solicitud de sobreseimiento definitivo a la imputada
+    - Año: 2007. 06/11/2007 Fecha comunicación a fax, a abogada de papá de sobreseimiento a favor de la imputada
+    - Oficina judicial: Juzgado de Tránsito de Heredia.
+    - Resumen: Accidente de Tránsito. Atropello a mi papá al costado Este del Colegio Liceo Los Lagos.
+    - Otra información: Uso de la Policía de Tránsito el día del accidente.
+    - Otra información: Internamiento de mi papá en el Hospital del Trauma, del Instituto Nacional de Seguros, en la Uruca.
+    - Otra información: Yo, estudiante de 7mo grado (2005 - 13 años), 8vo grado (2006 - 14 años), 9vo grado (2007 - 15 años), del Colegio Liceo Los Lagos.
 
 3. Expediente Registro Policía y CCSS - Caja Costarricense del Seguro Social, copia papel. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
-   - Año: 2005. Inicio psiquiatría papá: 20/01/2005
-   - Año: 2006. Fecha internamiento papá: 22/03/2006 al 11/04/2006
-   - Motivo internamiento psiquiátrico año 2006: Conflicto familiar, depresión e intento de suicidio, ingiriendo veneno líquido para matar cucarachas, hormigas y ratas, por parte de mi papá.
-   - Otra información psiquiátrico año 2006: Uso de la policía Fuerza Pública.
-   - Otra información psiquiátrico año 2006: Yo, estudiante de 8vo grado, del Colegio Liceo Los Lagos. 14 años edad.
+    - Año: 2005. Inicio psiquiatría papá: 20/01/2005
+    - Año: 2006. Fecha internamiento papá: 22/03/2006 al 11/04/2006
+    - Motivo internamiento psiquiátrico año 2006: Conflicto familiar, depresión e intento de suicidio, ingiriendo veneno líquido para matar cucarachas, hormigas y ratas, por parte de mi papá.
+    - Otra información psiquiátrico año 2006: Uso de la policía Fuerza Pública.
+    - Otra información psiquiátrico año 2006: Yo, estudiante de 8vo grado, del Colegio Liceo Los Lagos. 14 años edad.
 
 4. Expediente Registro Policía, copia papel.
-   - Expediente judicial: 07-000012-0807-FC
-   - Año: 2007. 08/01/2007 Fecha denuncia
-   - Año: 2007. 24/01/2007 Fecha asignar abogada defensora al caso para el ofendido
-   - Año: 2007. 12/02/2007 Fecha orden de localización, citación o presentación
-   - Año: 2007. 16/02/2007 Fecha declaración imputada
-   - Año: 2007. 07/03/2007 Fecha asignar abogada defensora al caso para el ofendido, recibir notificaciones
-   - Año: 2007. 10/04/2007 Fecha acta notificación fax
-   - Oficina judicial: Juzgado Contravencional de Heredia.
-   - Resumen: Conflicto entre vecinos. Mi papá denuncia a una vecina. Exhibicionismo.
-   - Otra información: Uso de la policía Fuerza Pública.
-   - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
+    - Expediente judicial: 07-000012-0807-FC
+    - Año: 2007. 08/01/2007 Fecha denuncia
+    - Año: 2007. 24/01/2007 Fecha asignar abogada defensora al caso para el ofendido
+    - Año: 2007. 12/02/2007 Fecha orden de localización, citación o presentación
+    - Año: 2007. 16/02/2007 Fecha declaración imputada
+    - Año: 2007. 07/03/2007 Fecha asignar abogada defensora al caso para el ofendido, recibir notificaciones
+    - Año: 2007. 10/04/2007 Fecha acta notificación fax
+    - Oficina judicial: Juzgado Contravencional de Heredia.
+    - Resumen: Conflicto entre vecinos. Mi papá denuncia a una vecina. Exhibicionismo.
+    - Otra información: Uso de la policía Fuerza Pública.
+    - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
 
 5. Expediente Registro Policía, copia papel.
-   - Expediente judicial: 07-000218-0807-FC
-   - Año: 2007. 22/02/2007 Fecha denuncia
-   - Año: 2007. 28/02/2007 Fecha orden de localización, citación o presentación
-   - Año: 2007. 05/03/2007 Fecha declaración imputado
-   - Ano: 2007. 18/10/2007 Fecha absolutoria número 169-07
-   - Oficina judicial: Juzgado Contravencional de Heredia.
-   - Resumen: Conflicto entre vecinos. Un vecino denuncia a mi papá. Amenazas.
-   - Otra información: Uso de la policía Fuerza Pública.
-   - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
+    - Expediente judicial: 07-000218-0807-FC
+    - Año: 2007. 22/02/2007 Fecha denuncia
+    - Año: 2007. 28/02/2007 Fecha orden de localización, citación o presentación
+    - Año: 2007. 05/03/2007 Fecha declaración imputado
+    - Ano: 2007. 18/10/2007 Fecha absolutoria número 169-07
+    - Oficina judicial: Juzgado Contravencional de Heredia.
+    - Resumen: Conflicto entre vecinos. Un vecino denuncia a mi papá. Amenazas.
+    - Otra información: Uso de la policía Fuerza Pública.
+    - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
 
 6. Expediente Registro Policía, copia papel.
-   - Expediente judicial: 06-001476-0807-FC Año: 2006
-   - Año: 2007. 22-06-2007
-   - Oficina judicial: Juzgado Contravencional de Heredia.
-   - Resumen: Conflicto entre vecinos. Una vecina denuncia a mi mamá. Sentencia absolutoria número 103-2007. Denuncia amenazas, palabras obscenas. 
-   - Otra información: Sin uso de la policía Fuerza Pública.
-   - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
+    - Expediente judicial: 06-001476-0807-FC Año: 2006
+    - Año: 2007. 22-06-2007
+    - Oficina judicial: Juzgado Contravencional de Heredia.
+    - Resumen: Conflicto entre vecinos. Una vecina denuncia a mi mamá. Sentencia absolutoria número 103-2007. Denuncia amenazas, palabras obscenas. 
+    - Otra información: Sin uso de la policía Fuerza Pública.
+    - Otra información: Yo, estudiante de 9no, del Colegio Liceo Los Lagos. 15 años edad.
 
 
 ### Colegio Técnico Profesional de Heredia - VOCA Heredia. 2008 (16 años edad) a 2010 (18 años edad).
 
 1. Expediente Registro Policía, sin copia papel.
-   - Expediente judicial: 09-000409-0651-VD
-   - Año: 2009. Fecha Desconozco.
-   - Oficina judicial: Juzgado de Violencia Doméstica de Heredia.
-   - Resumen: Conflicto familiar. Violencia doméstica entre papá y mamá.
-   - Otra información: Documentos de papel, destruidos por mi mamá o papá.
-   - Otra información: Con medidas de protección policía.
-   - Otra Información: No recuerdo casi lo que pasó días después, pero sí fragmentos de lo sucedido en la Comandancia de Policía de Heredia, ese día con mi papá y yo, estando en clases del VOCA de Heredia en ese momento.
-   - Otra información: Yo, estudiante de 11mo, del Colegio Técnico Profesional de Heredia. 17 años edad.
+    - Expediente judicial: 09-000409-0651-VD
+    - Año: 2009. Fecha Desconozco.
+    - Oficina judicial: Juzgado de Violencia Doméstica de Heredia.
+    - Resumen: Conflicto familiar. Violencia doméstica entre papá y mamá.
+    - Otra información: Documentos de papel, destruidos por mi mamá o papá.
+    - Otra información: Con medidas de protección policía.
+    - Otra Información: No recuerdo casi lo que pasó días después, pero sí fragmentos de lo sucedido en la Comandancia de Policía de Heredia, ese día con mi papá y yo, estando en clases del VOCA de Heredia en ese momento.
+    - Otra información: Yo, estudiante de 11mo, del Colegio Técnico Profesional de Heredia. 17 años edad.
 
 2. Expediente Registro Policía, copia papel.
-   - Expediente judicial: 09-000440-0651-VD
-   - Año: 2009. 05-03-2009 Fecha solicitud
-   - Año: 2009. 23-03-2009 Fecha comparecencia
-   - Oficina judicial: Juzgado de Violencia Doméstica de Heredia.
-   - Resumen: Conflicto familiar. Violencia doméstica entre mamá y papá. Proceso de medidas de protección en materia de violencia intrafamiliar. Mamá solicita medidas de protección a la policía para ser cumplidas por papá.
-   - Otra información: Documentos de papel, incompletos.
-   - Otra información: Con medidas de protección Policía.
-   - Otra información: No recuerdo casi lo que pasó ese día y días después.
-   - Otra información: 04-03-2009 Fecha cita control psiquiatría Hospital San Vicente de Paúl de papá.
-   - Otra información: Yo, estudiante de 11mo, del Colegio Técnico Profesional de Heredia. 17 años edad.
+    - Expediente judicial: 09-000440-0651-VD
+    - Año: 2009. 05-03-2009 Fecha solicitud
+    - Año: 2009. 23-03-2009 Fecha comparecencia
+    - Oficina judicial: Juzgado de Violencia Doméstica de Heredia.
+    - Resumen: Conflicto familiar. Violencia doméstica entre mamá y papá. Proceso de medidas de protección en materia de violencia intrafamiliar. Mamá solicita medidas de protección a la policía para ser cumplidas por papá.
+    - Otra información: Documentos de papel, incompletos.
+    - Otra información: Con medidas de protección Policía.
+    - Otra información: No recuerdo casi lo que pasó ese día y días después.
+    - Otra información: 04-03-2009 Fecha cita control psiquiatría Hospital San Vicente de Paúl de papá.
+    - Otra información: Yo, estudiante de 11mo, del Colegio Técnico Profesional de Heredia. 17 años edad.
 
 
 ### Instituto Tecnológico de Costa Rica - Tec de Cartago. 2011 (19 años edad) a 2012 (20 años edad).
@@ -250,43 +250,43 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 ### Año 2013 - Mi primer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. 2013 (21 años edad). Esquizofrenia Paranoide.
 
 1. Expediente Registro Policía, copia papel.
-   - Expediente judicial: 13-001882-0369-PE
-   - Año: 2013. 30-06-2013 02-07-2013 Fecha hurto simple en la noche - madrugada
-   - Año: 2013. 03-07-2013 Fecha denuncia penal
-   - Año: 2013. 11-10-2013 Fecha desisto continuar con la acción penal
-   - Oficina judicial: Fiscalía Adjunta de Heredia.
-   - Resumen: Conflicto entre vecinos. Mi papá denuncia a un vecino. Hurto simple.
-   - Otra información: Yo, sin ser estudiante en alguna institución educativa. 21 años edad.
-   - Otra información: Yo, internamiento en Hospital Psiquiátrico: Del 12-05-2013 al 07-06-2013.
+    - Expediente judicial: 13-001882-0369-PE
+    - Año: 2013. 30-06-2013 02-07-2013 Fecha hurto simple en la noche - madrugada
+    - Año: 2013. 03-07-2013 Fecha denuncia penal
+    - Año: 2013. 11-10-2013 Fecha desisto continuar con la acción penal
+    - Oficina judicial: Fiscalía Adjunta de Heredia.
+    - Resumen: Conflicto entre vecinos. Mi papá denuncia a un vecino. Hurto simple.
+    - Otra información: Yo, sin ser estudiante en alguna institución educativa. 21 años edad.
+    - Otra información: Yo, internamiento en Hospital Psiquiátrico: Del 12-05-2013 al 07-06-2013.
 
 2. Expediente Registro Policía, copia papel.
-   - Expediente judicial: 13-000876-0807-FC
-   - Año: 2013. 03-07-2013 Fecha denuncia genérica
-   - Año: 2013. 03-10-2013 Fecha audiencia conciliación y juicio
-   - Oficina judicial: Juzgado Contravencional de Heredia.
-   - Resumen: Conflicto entre vecinos. Mi papá denuncia a un vecino. Alborotos.
-   - Otra información: Yo, sin ser estudiante en alguna institución educativa. 21 años edad.
-   - Otra información: Yo, internamiento en Hospital Psiquiátrico: Del 12-05-2013 al 07-06-2013.
+    - Expediente judicial: 13-000876-0807-FC
+    - Año: 2013. 03-07-2013 Fecha denuncia genérica
+    - Año: 2013. 03-10-2013 Fecha audiencia conciliación y juicio
+    - Oficina judicial: Juzgado Contravencional de Heredia.
+    - Resumen: Conflicto entre vecinos. Mi papá denuncia a un vecino. Alborotos.
+    - Otra información: Yo, sin ser estudiante en alguna institución educativa. 21 años edad.
+    - Otra información: Yo, internamiento en Hospital Psiquiátrico: Del 12-05-2013 al 07-06-2013.
 
 
 ### Año 2018 - Sin eventos.
 
 1. Expediente Registro Policía, copia papel.
-   - Expediente judicial: 18-003751-0059-PE
-   - Año: 2018. 21-06-2018 Fecha denuncia penal
-   - Oficina judicial: Delegación Regional de Heredia.
-   - Resumen: Asalto. Un hermano es asaltado.
-   - Otra información: Yo, sin ser estudiante en alguna institución educativa. 26 años edad.
+    - Expediente judicial: 18-003751-0059-PE
+    - Año: 2018. 21-06-2018 Fecha denuncia penal
+    - Oficina judicial: Delegación Regional de Heredia.
+    - Resumen: Asalto. Un hermano es asaltado.
+    - Otra información: Yo, sin ser estudiante en alguna institución educativa. 26 años edad.
 
 
 ### Año 2022 - IPEC Santo Domingo de Heredia. 2022 (30 años edad).
 
 1. Expediente Registro Policía, copia papel.
-   - Expediente judicial: 22-000621-0059-PE
-   - Año: 2022. 27-01-2022 Fecha denuncia penal
-   - Oficina judicial: Delegación Regional de Heredia.
-   - Resumen: Asalto. Un hermano es asaltado.
-   - Otra información: Yo, estudiante curso libre Inglés del IPEC Santo Domingo de Heredia. 30 años edad.
+    - Expediente judicial: 22-000621-0059-PE
+    - Año: 2022. 27-01-2022 Fecha denuncia penal
+    - Oficina judicial: Delegación Regional de Heredia.
+    - Resumen: Asalto. Un hermano es asaltado.
+    - Otra información: Yo, estudiante curso libre Inglés del IPEC Santo Domingo de Heredia. 30 años edad.
 
 
 ## Parte 4. Tipo personalidad según test psicológico al 2024.
@@ -498,17 +498,17 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 6. Explicar el objetivo de por qué las radios de Costa Rica, usando los dispositivos espías en la casa donde vivo, acceso sin consentimiento a mis dispositivos personales y dispositivos en mi cabeza para electroencefalograma, muestran música perfecto dirigida con referencia a "amor".
 
-   - Ocultando hechos que han ocurrido años anteriores, desde los años aproximados de 2009 y 2010, durante mis estudios en el VOCA de Heredia - Colegio Técnico Profesional de Heredia.
-   - Durante los años 2011 y 2012, durante mis estudios en la universidad TEC de Cartago - Instituto Tecnológico de Costa Rica.
-   - Durante los años 2015, 2016 y 2017, durante mis primeros trabajos o empleos formales en el ámbito sector laboral, en 3 empresas diferentes.
-   - Durante el año 2016, en un curso de Cisco CCNA 1 - Redes de Computadora, en la universidad Universidad de Costa Rica, de la sede San Pedro de Montes de Oca, San José.
+    - Ocultando hechos que han ocurrido años anteriores, desde los años aproximados de 2009 y 2010, durante mis estudios en el VOCA de Heredia - Colegio Técnico Profesional de Heredia.
+    - Durante los años 2011 y 2012, durante mis estudios en la universidad TEC de Cartago - Instituto Tecnológico de Costa Rica.
+    - Durante los años 2015, 2016 y 2017, durante mis primeros trabajos o empleos formales en el ámbito sector laboral, en 3 empresas diferentes.
+    - Durante el año 2016, en un curso de Cisco CCNA 1 - Redes de Computadora, en la universidad Universidad de Costa Rica, de la sede San Pedro de Montes de Oca, San José.
 
 7. Explicar la relación de unos sujetos, con una cuadrilla de mujeres, mostraban odio hacia mi persona y odio a unos señores llamados: Jose Alberto y Jose Pablo de TI - Tecnologías de la Información de una empresa, que tienen que ver con hackeos a mis datos y a sus datos. Uso de esos datos, información y conocimiento, en los medios de comunicación. Cuando la radio encendida en los buses y esos señores (Jose) de Tecnologías de la Información, mostraban información de esas mujeres, esas mujeres y hombres me odian y arremeten contra mi, en varias formas de violencia. Creando un ambiente en los buses de guerra y en las paradas.
 
-   - Donde, a veces amo y odio a esas mujeres y a esos 2 señores de Tecnologías de la Información.
-   - Donde, esas mujeres me aman y odian, aman y odian a esos señores de Tecnologías de la Información.
-   - Donde, esos señores Jose, de Tecnologías de la Información aman y odian a esas mujeres y a mi persona, donde mi percepción es de que esos señores "Jose", su objetivo es de hacer una guerra y campo militar de Guararí.
-   - Donde, las radios y televisoras de Costa Rica, para sus Sistemas de Inteligencia Artificial, basado en la vida de de mi persona y esas cuadrilla de mujeres, como hipocresía de mostrar sólo amor hacia mi persona, perfecto dirigida con sus dispositivos espias, ocultando hechos anteriores tipo mentiras, como forma de tapar el Sol con un dedo.
+    - Donde, a veces amo y odio a esas mujeres y a esos 2 señores de Tecnologías de la Información.
+    - Donde, esas mujeres me aman y odian, aman y odian a esos señores de Tecnologías de la Información.
+    - Donde, esos señores Jose, de Tecnologías de la Información aman y odian a esas mujeres y a mi persona, donde mi percepción es de que esos señores "Jose", su objetivo es de hacer una guerra y campo militar de Guararí.
+    - Donde, las radios y televisoras de Costa Rica, para sus Sistemas de Inteligencia Artificial, basado en la vida de de mi persona y esas cuadrilla de mujeres, como hipocresía de mostrar sólo amor hacia mi persona, perfecto dirigida con sus dispositivos espias, ocultando hechos anteriores tipo mentiras, como forma de tapar el Sol con un dedo.
 
 
 ## Parte 10. Policías.
