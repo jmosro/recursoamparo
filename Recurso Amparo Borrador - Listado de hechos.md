@@ -559,7 +559,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 ## Parte 11. Vulnerar mis dispositivos personales.
 
-1. Denunciar acceso a mi dormitorio forzando seguro de llave en llavin de mano, tranca de tipo picaporte, objetos de zapatos en la puerta, objetos sobre el llavin de mano de la puerta.
+1. Denunciar acceso a mi dormitorio forzando seguro de llave en llavin de mano, tranca de tipo picaporte, objetos de zapatos en la puerta, objetos sobre el llavin de mano de la puerta, entre el 01 diciembre de 2023 al 14 de mayo de 2024, para hackear mi laptop guardado en mi dormitorio donde yo duermo, obtener información de una libreta diario personal con información, para el acceso y configuración de aplicaciones y Sistema Operativo de la laptop.
 
 2. Denunciar alteración de mi ubicación GPS real (Sistema de Posicionamiento Global) del SmartPhone Android en Google Maps (aplicación de rutas de caminos en mapas, registro de lugares visitados y carreteras transitadas) y Google Fit (aplicación para registro de actividades de ejercicio físico, donde se registra cantidad de pasos caminados usando mapas), en días convenientes para algunas personas.
 
