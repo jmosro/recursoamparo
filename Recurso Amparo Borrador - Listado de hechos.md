@@ -598,6 +598,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
    - Durante el año 2020 hasta 2023, tube que recurrir a momentos de sonidos binaurales con la técnica de Respiración Diafragmática Lenta, para sobrellevar la intensidad del pánico, duración de 2 a 4 horas sin detenerse, fluctuando el nivel de intensidad, algunas veces durante mis clases, cuando era estudiante en IPEC Santo Domingo de Heredia, estudiante activo del año 2019 a 2022, y durante mis viajes en los buses de Santo Domingo al centro de Heredia y de Heredia a Guararí. Un estado alterado de uno de los 3 cerebros, el cerebro reptiliano.
 
+
 2. Psicosis, pérdida de contacto temporal de mi alrededor.
 
    - Estado mental por unos segundos, estado psicótico breve, efecto aumentado por uso de antipsicóticos en tabletas de Risperidona y drogas inyectadas en las noches - madrugadas que desconozco el nombre, con ventana de período psicótico activo, entre las 4:00 pm a 7:00 pm, durante el atardecer y anochecer entre los años 2020 a 2023.
@@ -614,6 +615,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
    - Después de inyecciones de drogas en las noches y madrugadas en nalgas y músculos deltoides de brazos, efecto durante las mañanas entre 6:00 am a 8:00 am, en horario cuando escucho las noticias, Noticias Repretel. Referencian algo de un anuncio publicitario con contenido relacionado al tema servicio sanitario, siento calor en medio de las nalgas, sensación incómodo y estado de psicosis con despersonalización o desrealización.
 
+
 3. Distonía focal o acatisia en los ojos, tipo EMDR.
 
    - Movimiento de ojos tipo distonía o acatisia, en forma de zig zag por varios minutos, movimiento de ojos de tipo EMDR - Desensibilización y Reprocesamiento por Movimientos Oculares.
@@ -621,6 +623,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
    - En caso de estar en contacto con algo que me recuerde un momento de miedo o que quiero evitar, veo imágenes y videos en mi celular o laptop, estoy en un lugar, con ciertas personas en específico.
 
    - No puedo evitar el zig zag, ni incluso parpadeando. Por varios minutos de minutos, +10min o +20min de zig zag, llego a un momento, que miro a un punto fijo sin tener movimiento de zig zag, como si tuviera miopía, una imagen frente a mi, se va separando y moviendo en 2 copias alejandosen a la misma velocidad, mismo tamaño y color, mientras estoy viviendo un flashback sin sentimientos ni emociones con despersonalización o desrealización, sin recordar recuerdos del flashback pero mirando consciente de lo que tengo frente y directo hacia los ojos. Con forme la imagen doble se va moviendo y alejando, comienzo a sentir más intenso el flashback, hasta ver translúcido o borroso frente a mis 2 ojos, entre más intenso es el flashback más rápido es la velocidad de las 2 imágenes en copia alejandosen hasta ser total translúcido o borroso. Un flashback sin recuerdos pero sintiendo que estoy viviendo por segunda vez "ese algo" que no me gustó. A veces si recuerdo el evento del flashback con imágenes rápidas de unos segundos, por el contexto fisico o recuerdo voluntario que vivo en ese instante y es similar en triggers por los 5 sentidos. Flashbacks de imágenes y no olores ni sonidos ni sabores ni siento los calambres en mi piel ni músculos.
+
 
 4. Depresión.
 
@@ -644,11 +647,13 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
    - Por el uso de dispositivos pasivos que hacen y emiten sonido "tlak" para joder, meses antes de cada internamiento en el Hospital Nacional Psiquiátrico, 3 internamientos en los años 2013, 2017 y 2020.
 
+
 5. Rumiar, tipo TOC - Transtorno Obsesivo Compulsivo.
 
    - A veces, cuando escribo mensajes por WhatsApp a mis familiares o amigos, dar vuelta a un tema escrito en el mensaje, recordar de varias formas, no en formal original, en crudo ese escrito, dando vueltas tipo depresión, despersonalización y odio.
 
    - A veces, cuando siento Hipertensión Reactiva y excitación sexual, e impulsivo mientras escribo el mensaje a mis contactos.
+
 
 6. Ansiedad.
 
@@ -671,6 +676,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
    - Después de inyecciones en las madrugadas y noches para ese día, para utilizar ese día mi información, los medios de comunicación, radios y televisoras de Costa Rica, principal Noticias Repretel, obtenidos por uso de diferentes dispositivos, personas espiando que hago.
 
    - En contexto judicial y de policía durante ese día relacionado a mi persona, por parte de varias personas usando sus dispositivos.
+
 
 7. Despersonalización y desrealización.
 
