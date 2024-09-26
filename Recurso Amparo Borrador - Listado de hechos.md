@@ -603,7 +603,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 2. Psicosis, pérdida de contacto temporal de mi alrededor.
 
-    - Estado mental por unos segundos, estado psicótico breve, efecto aumentado por uso de antipsicóticos en tabletas de Risperidona y drogas inyectadas en las noches - madrugadas que desconozco el nombre, con ventana de período psicótico activo, entre las 4:00 pm a 7:00 pm, durante el atardecer y anochecer entre los años 2020 a 2023.
+    - Estado mental por unos segundos, estado psicótico breve, efecto aumentado por uso de antipsicóticos en pastillas / tabletas de Risperidona y drogas inyectadas en las madrugadas y noches, que desconozco el nombre, con ventana de período psicótico activo, entre las 4:00 pm a 7:00 pm, durante el atardecer y anochecer entre los años 2020 a 2023.
 
     - En mi casa, me siento como con anestesia en mis sentidos, dejo de poner atención a mi alrededor, a veces siento tipo despersonalización / desrealización, a veces mientras tengo movimientos de ojos tipo EMDR en trauma, al pasar los segundos, voy teniendo contacto con mi alrededor de las habitaciones, vuelvo a percibir con mis ojos que hay frente a mi y siento los objetos en mis manos, el frío o calor, el agua, siento los calambres por dispositivos debajo de mi piel y calambres en músculos, puntos gatillo.
 
