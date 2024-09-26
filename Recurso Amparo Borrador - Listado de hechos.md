@@ -594,107 +594,107 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 1. Pánico, agitación nerviosa por antipsicóticos.
 
-   - Desde el año 2020 a 2023. Inició durante mi tercer internamiento en marzo de 2020, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, con el cambio de antipsicóticos, por el diagnóstico de Esquizofrenia Paranoide.
+    - Desde el año 2020 a 2023. Inició durante mi tercer internamiento en marzo de 2020, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, con el cambio de antipsicóticos, por el diagnóstico de Esquizofrenia Paranoide.
 
-   - Durante el año 2020 hasta 2023, tube que recurrir a momentos de sonidos binaurales con la técnica de Respiración Diafragmática Lenta, para sobrellevar la intensidad del pánico, duración de 2 a 4 horas sin detenerse, fluctuando el nivel de intensidad, algunas veces durante mis clases, cuando era estudiante en IPEC Santo Domingo de Heredia, estudiante activo del año 2019 a 2022, y durante mis viajes en los buses de Santo Domingo al centro de Heredia y de Heredia a Guararí. Un estado alterado de uno de los 3 cerebros, el cerebro reptiliano.
+    - Durante el año 2020 hasta 2023, tube que recurrir a momentos de sonidos binaurales con la técnica de Respiración Diafragmática Lenta, para sobrellevar la intensidad del pánico, duración de 2 a 4 horas sin detenerse, fluctuando el nivel de intensidad, algunas veces durante mis clases, cuando era estudiante en IPEC Santo Domingo de Heredia, estudiante activo del año 2019 a 2022, y durante mis viajes en los buses de Santo Domingo al centro de Heredia y de Heredia a Guararí. Un estado alterado de uno de los 3 cerebros, el cerebro reptiliano.
 
 
 2. Psicosis, pérdida de contacto temporal de mi alrededor.
 
-   - Estado mental por unos segundos, estado psicótico breve, efecto aumentado por uso de antipsicóticos en tabletas de Risperidona y drogas inyectadas en las noches - madrugadas que desconozco el nombre, con ventana de período psicótico activo, entre las 4:00 pm a 7:00 pm, durante el atardecer y anochecer entre los años 2020 a 2023.
+    - Estado mental por unos segundos, estado psicótico breve, efecto aumentado por uso de antipsicóticos en tabletas de Risperidona y drogas inyectadas en las noches - madrugadas que desconozco el nombre, con ventana de período psicótico activo, entre las 4:00 pm a 7:00 pm, durante el atardecer y anochecer entre los años 2020 a 2023.
 
-   - En mi casa, me siento como con anestesia en mis sentidos, dejo de poner atención a mi alrededor, a veces siento tipo despersonalización / desrealización, a veces mientras tengo movimientos de ojos tipo EMDR en trauma, al pasar los segundos, voy teniendo contacto con mi alrededor de las habitaciones, vuelvo a percibir con mis ojos que hay frente a mi y siento los objetos en mis manos, el frío o calor, el agua, siento los calambres por dispositivos debajo de mi piel y calambres en músculos, puntos gatillo.
+    - En mi casa, me siento como con anestesia en mis sentidos, dejo de poner atención a mi alrededor, a veces siento tipo despersonalización / desrealización, a veces mientras tengo movimientos de ojos tipo EMDR en trauma, al pasar los segundos, voy teniendo contacto con mi alrededor de las habitaciones, vuelvo a percibir con mis ojos que hay frente a mi y siento los objetos en mis manos, el frío o calor, el agua, siento los calambres por dispositivos debajo de mi piel y calambres en músculos, puntos gatillo.
 
-   - En mi casa, durante unos segundos cuando eyaculo, principal cuando eyaculo rápido y brusco, aumentado cuando me siento excitado sexual por inyecciones de drogas en las noches y madrugadas, sintiendo excitación sexual desde la mañana hasta detenerse al eyacular, e hipertensión reactiva con psicosis. A veces durante unos segundos por el uso de dispositivos en el baño que hacen voz de hombre o mujer diciendo mi nombre llamándome.
+    - En mi casa, durante unos segundos cuando eyaculo, principal cuando eyaculo rápido y brusco, aumentado cuando me siento excitado sexual por inyecciones de drogas en las noches y madrugadas, sintiendo excitación sexual desde la mañana hasta detenerse al eyacular, e hipertensión reactiva con psicosis. A veces durante unos segundos por el uso de dispositivos en el baño que hacen voz de hombre o mujer diciendo mi nombre llamándome.
 
-   - En la calle, siento movimiento de ojos tipo mirada perdida y mirada de visión de túnel, en caso de estar frente a frente de personas en la calle en movimiento.
+    - En la calle, siento movimiento de ojos tipo mirada perdida y mirada de visión de túnel, en caso de estar frente a frente de personas en la calle en movimiento.
 
-   - En la calle, sonido pasivo hipnótico en dispositivos Smartphone, en los celulares de personas alrededor de mi, fuera de mi casa, personas en radio cercano de radiofrecuencia a mi persona.
+    - En la calle, sonido pasivo hipnótico en dispositivos Smartphone, en los celulares de personas alrededor de mi, fuera de mi casa, personas en radio cercano de radiofrecuencia a mi persona.
 
-   - Cuando estoy al aire libre, en la calle o patio de mi casa, minutos antes de llover, oscuro y rayería, esos minutos hasta la lluvia, siento una sensación de vacío, miedo, pánico, como si eso quiere dañarme y debo ponerme a salvo.
+    - Cuando estoy al aire libre, en la calle o patio de mi casa, minutos antes de llover, oscuro y rayería, esos minutos hasta la lluvia, siento una sensación de vacío, miedo, pánico, como si eso quiere dañarme y debo ponerme a salvo.
 
-   - Después de inyecciones de drogas en las noches y madrugadas en nalgas y músculos deltoides de brazos, efecto durante las mañanas entre 6:00 am a 8:00 am, en horario cuando escucho las noticias, Noticias Repretel. Referencian algo de un anuncio publicitario con contenido relacionado al tema servicio sanitario, siento calor en medio de las nalgas, sensación incómodo y estado de psicosis con despersonalización o desrealización.
+    - Después de inyecciones de drogas en las noches y madrugadas en nalgas y músculos deltoides de brazos, efecto durante las mañanas entre 6:00 am a 8:00 am, en horario cuando escucho las noticias, Noticias Repretel. Referencian algo de un anuncio publicitario con contenido relacionado al tema servicio sanitario, siento calor en medio de las nalgas, sensación incómodo y estado de psicosis con despersonalización o desrealización.
 
 
 3. Distonía focal o acatisia en los ojos, tipo EMDR.
 
-   - Movimiento de ojos tipo distonía o acatisia, en forma de zig zag por varios minutos, movimiento de ojos de tipo EMDR - Desensibilización y Reprocesamiento por Movimientos Oculares.
+    - Movimiento de ojos tipo distonía o acatisia, en forma de zig zag por varios minutos, movimiento de ojos de tipo EMDR - Desensibilización y Reprocesamiento por Movimientos Oculares.
 
-   - En caso de estar en contacto con algo que me recuerde un momento de miedo o que quiero evitar, veo imágenes y videos en mi celular o laptop, estoy en un lugar, con ciertas personas en específico.
+    - En caso de estar en contacto con algo que me recuerde un momento de miedo o que quiero evitar, veo imágenes y videos en mi celular o laptop, estoy en un lugar, con ciertas personas en específico.
 
-   - No puedo evitar el zig zag, ni incluso parpadeando. Por varios minutos de minutos, +10min o +20min de zig zag, llego a un momento, que miro a un punto fijo sin tener movimiento de zig zag, como si tuviera miopía, una imagen frente a mi, se va separando y moviendo en 2 copias alejandosen a la misma velocidad, mismo tamaño y color, mientras estoy viviendo un flashback sin sentimientos ni emociones con despersonalización o desrealización, sin recordar recuerdos del flashback pero mirando consciente de lo que tengo frente y directo hacia los ojos. Con forme la imagen doble se va moviendo y alejando, comienzo a sentir más intenso el flashback, hasta ver translúcido o borroso frente a mis 2 ojos, entre más intenso es el flashback más rápido es la velocidad de las 2 imágenes en copia alejandosen hasta ser total translúcido o borroso. Un flashback sin recuerdos pero sintiendo que estoy viviendo por segunda vez "ese algo" que no me gustó. A veces si recuerdo el evento del flashback con imágenes rápidas de unos segundos, por el contexto fisico o recuerdo voluntario que vivo en ese instante y es similar en triggers por los 5 sentidos. Flashbacks de imágenes y no olores ni sonidos ni sabores ni siento los calambres en mi piel ni músculos.
+    - No puedo evitar el zig zag, ni incluso parpadeando. Por varios minutos de minutos, +10min o +20min de zig zag, llego a un momento, que miro a un punto fijo sin tener movimiento de zig zag, como si tuviera miopía, una imagen frente a mi, se va separando y moviendo en 2 copias alejandosen a la misma velocidad, mismo tamaño y color, mientras estoy viviendo un flashback sin sentimientos ni emociones con despersonalización o desrealización, sin recordar recuerdos del flashback pero mirando consciente de lo que tengo frente y directo hacia los ojos. Con forme la imagen doble se va moviendo y alejando, comienzo a sentir más intenso el flashback, hasta ver translúcido o borroso frente a mis 2 ojos, entre más intenso es el flashback más rápido es la velocidad de las 2 imágenes en copia alejandosen hasta ser total translúcido o borroso. Un flashback sin recuerdos pero sintiendo que estoy viviendo por segunda vez "ese algo" que no me gustó. A veces si recuerdo el evento del flashback con imágenes rápidas de unos segundos, por el contexto fisico o recuerdo voluntario que vivo en ese instante y es similar en triggers por los 5 sentidos. Flashbacks de imágenes y no olores ni sonidos ni sabores ni siento los calambres en mi piel ni músculos.
 
 
 4. Depresión.
 
-   - Por el uso de drogas inyectadas en las noches y madrugadas, para sentirme fatal ese día, que ocupan ese grupo de personas, para sus experimentos y con Inteligencia Artificial para sus sistemas en radios y televisoras de Costa Rica, también para grabar videos e imágenes para sus películas y personas que me espian usando sus diferentes dispositivos.
+    - Por el uso de drogas inyectadas en las noches y madrugadas, para sentirme fatal ese día, que ocupan ese grupo de personas, para sus experimentos y con Inteligencia Artificial para sus sistemas en radios y televisoras de Costa Rica, también para grabar videos e imágenes para sus películas y personas que me espian usando sus diferentes dispositivos.
 
-   - Durante mis viajes en bus con esa cuadrilla de mujeres y hombres del Tec de Cartago - Instituto Tecnológico de Costa Rica del año 2011 a 2012 y Voca Heredia - Colegio Técnico Profesional de Heredia durante mi último nivel técnico del año 2010, estudiante del Voca del año 2008 a 2010.
+    - Durante mis viajes en bus con esa cuadrilla de mujeres y hombres del Tec de Cartago - Instituto Tecnológico de Costa Rica del año 2011 a 2012 y Voca Heredia - Colegio Técnico Profesional de Heredia durante mi último nivel técnico del año 2010, estudiante del Voca del año 2008 a 2010.
 
-   - Durante los días religiosos.
+    - Durante los días religiosos.
 
-   - Durante cuando me siento triste y estoy con mi perro Body.
+    - Durante cuando me siento triste y estoy con mi perro Body.
 
-   - Durante el uso de la laptop por sus hackeos e uso de dispositivos para vulnerar mis dispositivos personales.
+    - Durante el uso de la laptop por sus hackeos e uso de dispositivos para vulnerar mis dispositivos personales.
 
-   - Durante cuando escucho la radio, Radio Monumental con el programa Pelando el Ojo de 5:00 pm a 7:00 pm.
+    - Durante cuando escucho la radio, Radio Monumental con el programa Pelando el Ojo de 5:00 pm a 7:00 pm.
 
-   - Durante mi estado de hipertensión reactiva y excitación sexual cuando me estoy bañando.
+    - Durante mi estado de hipertensión reactiva y excitación sexual cuando me estoy bañando.
 
-   - Durante las noticias, Noticias Repretel.
+    - Durante las noticias, Noticias Repretel.
 
-   - 6 sesiones de Terapia Electroconvulsiva por depresión severa, en el segundo internamiento en el mes de agosto de 2017, internamiento de mayo a agosto del año 2017, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
+    - 6 sesiones de Terapia Electroconvulsiva por depresión severa, en el segundo internamiento en el mes de agosto de 2017, internamiento de mayo a agosto del año 2017, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
 
-   - Por el uso de dispositivos pasivos que hacen y emiten sonido "tlak" para joder, meses antes de cada internamiento en el Hospital Nacional Psiquiátrico, 3 internamientos en los años 2013, 2017 y 2020.
+    - Por el uso de dispositivos pasivos que hacen y emiten sonido "tlak" para joder, meses antes de cada internamiento en el Hospital Nacional Psiquiátrico, 3 internamientos en los años 2013, 2017 y 2020.
 
 
 5. Rumiar, tipo TOC - Transtorno Obsesivo Compulsivo.
 
-   - A veces, cuando escribo mensajes por WhatsApp a mis familiares o amigos, dar vuelta a un tema escrito en el mensaje, recordar de varias formas, no en formal original, en crudo ese escrito, dando vueltas tipo depresión, despersonalización y odio.
+    - A veces, cuando escribo mensajes por WhatsApp a mis familiares o amigos, dar vuelta a un tema escrito en el mensaje, recordar de varias formas, no en formal original, en crudo ese escrito, dando vueltas tipo depresión, despersonalización y odio.
 
-   - A veces, cuando siento Hipertensión Reactiva y excitación sexual, e impulsivo mientras escribo el mensaje a mis contactos.
+    - A veces, cuando siento Hipertensión Reactiva y excitación sexual, e impulsivo mientras escribo el mensaje a mis contactos.
 
 
 6. Ansiedad.
 
-   - Movimiento de los labios y lengua de mi boca, rodillas, pies, rascar la cabeza por caspa y granos sobre la piel cabelludo.
+    - Movimiento de los labios y lengua de mi boca, rodillas, pies, rascar la cabeza por caspa y granos sobre la piel cabelludo.
 
-   - Sudor en axilas, palmas de la mano, cara, orejas calientes, nalgas, pies, aumentado por los dispositivos colocados en los nervios de esas partes del cuerpo para medir y causar más actividad nerviosa y sudor.
+    - Sudor en axilas, palmas de la mano, cara, orejas calientes, nalgas, pies, aumentado por los dispositivos colocados en los nervios de esas partes del cuerpo para medir y causar más actividad nerviosa y sudor.
 
-   - Antes de salir de la casa y tener que coger bus, ganas de tomar agua y orinar.
+    - Antes de salir de la casa y tener que coger bus, ganas de tomar agua y orinar.
 
-   - Por uso de dispositivos que emiten sonidos pasivos "tlak".
+    - Por uso de dispositivos que emiten sonidos pasivos "tlak".
 
-   - En los estados de despersonalización / desrealización y pánico por agitación nerviosa por uso de antipsicóticos y drogas inyectadas en las noches y madrugadas.
+    - En los estados de despersonalización / desrealización y pánico por agitación nerviosa por uso de antipsicóticos y drogas inyectadas en las noches y madrugadas.
 
-   - Cuando trato de concentrarme en la laptop para estudiar temas relacionados a mis estudios, muchos estímulos alrededor jodiendo, televisión, radio, vecinos, sonidos pasivos, carros, perros ladrando, gente hablando, familiares hablando en la misma casa.
+    - Cuando trato de concentrarme en la laptop para estudiar temas relacionados a mis estudios, muchos estímulos alrededor jodiendo, televisión, radio, vecinos, sonidos pasivos, carros, perros ladrando, gente hablando, familiares hablando en la misma casa.
 
-   - Hablar con otras personas frente a frente fuera de mi casa, mientras me siento observado por personas alrededor.
+    - Hablar con otras personas frente a frente fuera de mi casa, mientras me siento observado por personas alrededor.
 
-   - Compulsiones después de eyacular.
+    - Compulsiones después de eyacular.
 
-   - Después de inyecciones en las madrugadas y noches para ese día, para utilizar ese día mi información, los medios de comunicación, radios y televisoras de Costa Rica, principal Noticias Repretel, obtenidos por uso de diferentes dispositivos, personas espiando que hago.
+    - Después de inyecciones en las madrugadas y noches para ese día, para utilizar ese día mi información, los medios de comunicación, radios y televisoras de Costa Rica, principal Noticias Repretel, obtenidos por uso de diferentes dispositivos, personas espiando que hago.
 
-   - En contexto judicial y de policía durante ese día relacionado a mi persona, por parte de varias personas usando sus dispositivos.
+    - En contexto judicial y de policía durante ese día relacionado a mi persona, por parte de varias personas usando sus dispositivos.
 
 
 7. Despersonalización y desrealización.
 
-   - Como si los carros se movieran en cámara lenta.
+    - Como si los carros se movieran en cámara lenta.
 
-   - Como si tuviera un casco de motocicleta viendo a mi alrededor.
+    - Como si tuviera un casco de motocicleta viendo a mi alrededor.
 
-   - Parece no haber profundidad de distancia en objetos, casas, vehículos ni peso.
+    - Parece no haber profundidad de distancia en objetos, casas, vehículos ni peso.
 
-   - Como si las personas alrededor de mi fuesen dejá vu, se repite en esa persona en ese mismo lugar, una y otra vez y no son reales.
+    - Como si las personas alrededor de mi fuesen dejá vu, se repite en esa persona en ese mismo lugar, una y otra vez y no son reales.
 
-   - Me cuesta memorizar, recordar cosas simples y hacer cálculos mentales sencillos, cuando estoy comprando en Palí Lagos o Pequeño Mundo.
+    - Me cuesta memorizar, recordar cosas simples y hacer cálculos mentales sencillos, cuando estoy comprando en Palí Lagos o Pequeño Mundo.
 
-   - Capacidad de imaginar un bus en copias de espejo a los lados, arriba y abajo, en el puente entre Guararí y La Milpa, mientras camino y va pasando carros en movimiento, por las inyecciones de drogas en las noches y madrugadas para ese día.
+    - Capacidad de imaginar un bus en copias de espejo a los lados, arriba y abajo, en el puente entre Guararí y La Milpa, mientras camino y va pasando carros en movimiento, por las inyecciones de drogas en las noches y madrugadas para ese día.
 
-   - Como si las hojas de árboles y plantas se movieran en cámara lenta con el viento y tuviera colores llamativos.
+    - Como si las hojas de árboles y plantas se movieran en cámara lenta con el viento y tuviera colores llamativos.
 
-   - Después de inyecciones en las madrugadas y noches para ese día, tipo drogas disociativas, de camino a pie al Hospital de Heredia - Hospital San Vicente de Paúl, cada mes por mi medicamento pastillas/tabletas, como si viera los blocks y tubos de cañería de cemento de una empresa de camino, en copias, sin peso y respetando el orden lógico del volumen del block y color, uno sobre otro para formar tipo muralla de 5 metros de alto, que puedo mover sin tocar y apilar más blocks, formando una pared en medio de la acera del lado opuesto mientras voy caminando, y en la carretera tipo alucinaciones, donde la muralla no toca el suelo y esta suspendido en el aire, que se mueve a la misma distancia que voy caminando, sin chocar con ningún carro en movimiento sobre la calle.
+    - Después de inyecciones en las madrugadas y noches para ese día, tipo drogas disociativas, de camino a pie al Hospital de Heredia - Hospital San Vicente de Paúl, cada mes por mi medicamento pastillas/tabletas, como si viera los blocks y tubos de cañería de cemento de una empresa de camino, en copias, sin peso y respetando el orden lógico del volumen del block y color, uno sobre otro para formar tipo muralla de 5 metros de alto, que puedo mover sin tocar y apilar más blocks, formando una pared en medio de la acera del lado opuesto mientras voy caminando, y en la carretera tipo alucinaciones, donde la muralla no toca el suelo y esta suspendido en el aire, que se mueve a la misma distancia que voy caminando, sin chocar con ningún carro en movimiento sobre la calle.
 
 
 
