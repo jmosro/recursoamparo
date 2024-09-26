@@ -592,11 +592,13 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 ## Parte 12. Efectos secundarios de drogas desde el año 2020.
 
-1. Pánico, agitación nerviosa por antipsicóticos.
+1. Pánico por agitación nerviosa al uso de antipsicótico y puntos negros en la vista.
 
-    - Desde el año 2020 a 2023. Inició durante mi tercer internamiento en marzo de 2020, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, con el cambio de antipsicóticos, por el diagnóstico de Esquizofrenia Paranoide.
+    - Desde marzo de 2020 a septiembre de 2023, durante 3 años y 6 meses seguidos. Después de mi tercer internamiento en marzo de 2020, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, con el cambio de antipsicótico, por el diagnóstico de Esquizofrenia Paranoide, tube agitación nerviosa por antipsicótico.
 
-    - Durante el año 2020 hasta 2023, tube que recurrir a momentos de sonidos binaurales con la técnica de Respiración Diafragmática Lenta, para sobrellevar la intensidad del pánico, duración de 2 a 4 horas sin detenerse, fluctuando el nivel de intensidad, algunas veces durante mis clases, cuando era estudiante en IPEC Santo Domingo de Heredia, estudiante activo del año 2019 a 2022, y durante mis viajes en los buses de Santo Domingo al centro de Heredia y de Heredia a Guararí. Un estado alterado de uno de los 3 cerebros, el cerebro reptiliano.
+    - Durante el año 2020 hasta 2023, tube que recurrir a momentos de sonidos binaurales con la técnica de Respiración Diafragmática Lenta, para sobrellevar la intensidad del pánico, duración de 2 a 4 horas sin detenerse, fluctuando el nivel de intensidad, algunas veces durante mis clases, cuando era estudiante en IPEC Santo Domingo de Heredia, estudiante activo del año 2019 a 2022, y durante mis viajes en los buses, bus de Santo Domingo de Heredia al centro de la cuidad de Heredia y bus de Heredia a Guararí. Un estado alterado de uno de los 3 cerebros, el cerebro reptiliano.
+
+    - Durante el pánico por uso de antipsicótico, sentía temblor en el cuello de la cabeza y manos, nerviosismo, visión con puntos negros en mis 2 ojos, pupilas muy dilatadas, sudoración, estado de alerta a las personas de mi alrededor, principal durante mi viaje en los buses y de camino de regreso a mi casa, después de salir de clases en la tarde, sentimiento de vulnerabilidad y recuerdos con percepción tipo daño y ataque, por parte de las personas de mi alrededor, ya que algunas de esas personas en los buses, son mujeres persecutoras de una cuadrilla de mujeres de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, que no me caen bien y las odio, llegando a veces a llorar al baño de mi casa por la intensidad del pánico de ese día.
 
 
 2. Psicosis, pérdida de contacto temporal de mi alrededor.
