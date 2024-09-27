@@ -626,22 +626,26 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Movimiento de ojos tipo distonía o acatisia, en forma de zig zag por varios minutos, movimiento de ojos de tipo EMDR - Desensibilización y Reprocesamiento por Movimientos Oculares.
 
-    - En caso de estar en contacto con algo que me recuerde un momento de miedo o que quiero evitar, veo imágenes y videos en mi celular o laptop, estoy en un lugar, con ciertas personas en específico.
+    - En caso de estar en contacto, con algo que me recuerde un momento de miedo o que quiero evitar, veo imágenes y vídeos en mi celular o Laptop, estoy en un lugar con ciertas personas en específico.
 
-    - No puedo evitar el zig zag, ni incluso parpadeando. Por varios minutos de minutos, +10min o +20min de zig zag, llego a un momento, que miro a un punto fijo sin tener movimiento de zig zag, como si tuviera miopía, una imagen frente a mi, se va separando y moviendo en 2 copias alejandosen a la misma velocidad, mismo tamaño y color, mientras estoy viviendo un flashback sin sentimientos ni emociones con despersonalización o desrealización, sin recordar recuerdos del flashback pero mirando consciente de lo que tengo frente y directo hacia los ojos. Con forme la imagen doble se va moviendo y alejando, comienzo a sentir más intenso el flashback, hasta ver translúcido o borroso frente a mis 2 ojos, entre más intenso es el flashback más rápido es la velocidad de las 2 imágenes en copia alejandosen hasta ser total translúcido o borroso. Un flashback sin recuerdos pero sintiendo que estoy viviendo por segunda vez "ese algo" que no me gustó. A veces si recuerdo el evento del flashback con imágenes rápidas de unos segundos, por el contexto fisico o recuerdo voluntario que vivo en ese instante y es similar en triggers por los 5 sentidos. Flashbacks de imágenes y no olores ni sonidos ni sabores ni siento los calambres en mi piel ni músculos.
+    - No puedo evitar el zig zag, ni incluso parpadeando. Por varios minutos de minutos, +10 min o +20 min de zig zag, llego a un momento, que miro a un punto fijo sin tener movimiento de zig zag, como si tuviera miopía o astigmatismo, una imagen frente a mi, se va separando y moviendo en 2 copias alejandosen a la misma velocidad y despacio, 2 réplicas del mismo tamaño y color, mientras estoy viviendo un flashback, sin sentimientos ni emociones con despersonalización o desrealización, sin recordar recuerdos del flashback pero mirando consciente de lo que tengo frente y directo hacia los ojos.
+
+    - Durante el pico máximo de distonía focal con flashback, con forme la imagen doble se va moviendo y alejando, comienzo a sentir más intenso el flashback, hasta ver translúcido o borroso frente a mis 2 ojos la imagen frente a mis ojos, entre más intenso es el flashback más rápido es la velocidad de las 2 imágenes en copia alejandosen, hasta ser total translúcido o borroso.
+
+    - Un flashback sin recuerdos pero sintiendo que estoy viviendo por segunda vez "ese algo" que no me gustó. A veces sí, recuerdo el evento del flashback con imágenes rápidas de unos segundos, por el contexto físico o recuerdo voluntario, que vivo en ese instante y es similar al triggers por los 5 sentidos. Flashbacks de imágenes y no olores, ni sonidos, ni sabores, ni siento los calambres en mi piel, ni en los músculos.
 
 
 4. Depresión.
 
-    - Por el uso de drogas inyectadas en las noches y madrugadas, para sentirme fatal ese día, que ocupan ese grupo de personas, para sus experimentos y con Inteligencia Artificial para sus sistemas en radios y televisoras de Costa Rica, también para grabar videos e imágenes para sus películas y personas que me espian usando sus diferentes dispositivos.
+    - Por el uso de drogas inyectadas en las madrugadas y noches, para sentirme fatal ese día, que ocupan ese grupo de personas, para sus experimentos y con sus Sistemas de Inteligencia Artificial, para sus sistemas en radios y televisoras de Costa Rica, también para grabar videos e imágenes para sus películas y mostrar el físico de mi cara con depresión a personas, que me espian usando sus diferentes dispositivos y en los buses.
 
-    - Durante mis viajes en bus con esa cuadrilla de mujeres y hombres del Tec de Cartago - Instituto Tecnológico de Costa Rica del año 2011 a 2012 y Voca Heredia - Colegio Técnico Profesional de Heredia durante mi último nivel técnico del año 2010, estudiante del Voca del año 2008 a 2010.
+    - Durante mis viajes en bus, con esa cuadrilla de mujeres y hombres del Tec de Cartago - Instituto Tecnológico de Costa Rica de los años 2011 a 2012 y Voca Heredia - Colegio Técnico Profesional de Heredia, durante mi último nivel técnico del año 2010, estudiante del Voca del año 2008 a 2010.
 
-    - Durante los días religiosos.
+    - Durante los días religiosos, días domingo, durante la transmisión de la misa Católica, en televisión Teletica - Canal 7, al hacer oración religiosa.
 
     - Durante cuando me siento triste y estoy con mi perro Body.
 
-    - Durante el uso de la laptop por sus hackeos e uso de dispositivos para vulnerar mis dispositivos personales.
+    - Durante el uso de la Laptop, por sus hackeos e uso de dispositivos para vulnerar mis dispositivos personales.
 
     - Durante cuando escucho la radio, Radio Monumental con el programa Pelando el Ojo de 5:00 pm a 7:00 pm.
 
@@ -651,14 +655,14 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - 6 sesiones de Terapia Electroconvulsiva por depresión severa, en el segundo internamiento en el mes de agosto de 2017, internamiento de mayo a agosto del año 2017, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
 
-    - Por el uso de dispositivos pasivos que hacen y emiten sonido "tlak" para joder, meses antes de cada internamiento en el Hospital Nacional Psiquiátrico, 3 internamientos en los años 2013, 2017 y 2020.
+    - Por el uso de dispositivos pasivos, que hacen y emiten sonido "tlak" para joder, meses antes de cada internamiento en el Hospital Nacional Psiquiátrico, 3 períodos de joder antes de cada internamiento, en los años 2013, 2017 y 2020.
 
 
 5. Rumiar, tipo TOC - Transtorno Obsesivo Compulsivo.
 
-    - A veces, cuando escribo mensajes por WhatsApp a mis familiares o amigos, dar vuelta a un tema escrito en el mensaje, recordar de varias formas, no en formal original, en crudo ese escrito, dando vueltas tipo depresión, despersonalización y odio.
+    - A veces, cuando escribo mensajes por WhatsApp a mis familiares o amigos, dar vuelta a un tema escrito en el mensaje, recordar de varias formas el escrito, sin capacidad de recordar las palabras exactas original, de lo que escribí hace unos segundos, dando vueltas rumiante tipo depresión, despersonalización, odio y impulsivo.
 
-    - A veces, cuando siento Hipertensión Reactiva y excitación sexual, e impulsivo mientras escribo el mensaje a mis contactos.
+    - A veces, horas después de inyecciones de droga en madrugadas y noches, cuando siento hipertensión reactiva, excitación sexual, impulsivo, mientras estoy escribiendo mensajes a mis contactos.
 
 
 6. Ansiedad.
