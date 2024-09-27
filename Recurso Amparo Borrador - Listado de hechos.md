@@ -667,25 +667,27 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 6. Ansiedad.
 
-    - Movimiento de los labios y lengua de mi boca, rodillas, pies, rascar la cabeza por caspa y granos sobre la piel cabelludo.
+    - Movimiento de los labios y lengua de mi boca, rodillas, pies, rascar la cabeza por caspa y granos sobre la piel cabelluda.
 
-    - Sudor en axilas, palmas de la mano, cara, orejas calientes, nalgas, pies, aumentado por los dispositivos colocados en los nervios de esas partes del cuerpo para medir y causar más actividad nerviosa y sudor.
+    - Sudor en axilas, palmas de la mano, cara, orejas calientes, nalgas, pies, aumentado por los dispositivos colocados en los nervios, de esas partes del cuerpo, para medir y causar más actividad nerviosa y sudor.
 
     - Antes de salir de la casa y tener que coger bus, ganas de tomar agua y orinar.
 
     - Por uso de dispositivos que emiten sonidos pasivos "tlak".
 
-    - En los estados de despersonalización / desrealización y pánico por agitación nerviosa por uso de antipsicóticos y drogas inyectadas en las noches y madrugadas.
+    - En los estados de desrealización / despersonalización y pánico, por agitación nerviosa al uso de antipsicóticos y drogas inyectadas en las madrugadas y noches.
 
-    - Cuando trato de concentrarme en la laptop para estudiar temas relacionados a mis estudios, muchos estímulos alrededor jodiendo, televisión, radio, vecinos, sonidos pasivos, carros, perros ladrando, gente hablando, familiares hablando en la misma casa.
+    - Cuando trato de concentrarme en la Laptop, para estudiar temas relacionados a mis estudios, muchos estímulos alrededor jodiendo, televisión, radio, vecinos, sonidos pasivos, carros, perros ladrando, gente hablando, familiares hablando en la misma casa, Smartphone de familiares con música.
 
-    - Hablar con otras personas frente a frente fuera de mi casa, mientras me siento observado por personas alrededor.
+    - Hablar con otras personas frente a frente y afuera de mi casa, mientras me siento observado por personas alrededor.
 
     - Compulsiones después de eyacular.
 
-    - Después de inyecciones en las madrugadas y noches para ese día, para utilizar ese día mi información, los medios de comunicación, radios y televisoras de Costa Rica, principal Noticias Repretel, obtenidos por uso de diferentes dispositivos, personas espiando que hago.
+    - Gases en el estómago y arrancar pelos de la nariz.
 
-    - En contexto judicial y de policía durante ese día relacionado a mi persona, por parte de varias personas usando sus dispositivos.
+    - Después de inyecciones en las madrugadas y noches para ese día, para utilizar ese día mi información, los medios de comunicación, radios y televisoras de Costa Rica, principal Noticias Repretel - Canal 6, obtenidos por uso de diferentes dispositivos, personas espiando que hago.
+
+    - En contexto judicial y de policía, durante ese día relacionado a mi persona, por parte de varias personas usando sus dispositivos.
 
 
 7. Despersonalización y desrealización.
