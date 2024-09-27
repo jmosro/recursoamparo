@@ -598,20 +598,20 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Donde ocurre: Durante el año 2020 hasta 2023, tube que recurrir a momentos de sonidos binaurales con la técnica de Respiración Diafragmática Lenta, para sobrellevar la intensidad del pánico, duración de 2 a 4 horas sin detenerse, fluctuando el nivel de intensidad, algunas veces durante mis clases, cuando era estudiante en IPEC Santo Domingo de Heredia, estudiante activo del año 2019 a 2022, y durante mis viajes en los buses, bus de Santo Domingo de Heredia al centro de la cuidad de Heredia y bus de Heredia Centro a Guararí. Un estado alterado de uno de los 3 cerebros, el cerebro reptiliano.
 
-    - Efectos secundarios: Durante el pánico por uso de antipsicótico, sentía temblor en el cuello de la cabeza y manos, nerviosismo, visión con puntos negros en mis 2 ojos, pupilas muy dilatadas, sudoración, movimientos de los brazos y piernas con control absoluto y calculando acciones de movimiento para luchar o huir, estado de alerta a las personas de mi alrededor, principal durante mi viaje en los buses y de camino de regreso a mi casa, después de salir de clases en la tarde, estado primitivo de vulnerabilidad y recuerdos con percepción tipo daño y ataque hacia mi persona, por parte de las personas de mi alrededor, ya que algunas de esas personas en los buses, son mujeres persecutoras de un grupo cuadrilla de mujeres de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, que no me caen bien y las odio, llegando a veces a llorar al baño de mi casa por la intensidad del pánico de ese día.
+    - Efectos secundarios: Durante el pánico por uso de antipsicótico, sentía temblor en el cuello de la cabeza y manos, nerviosismo, visión con puntos negros en mis 2 ojos, pupilas muy dilatadas, sudoración, movimientos de los brazos y piernas con control absoluto y calculando acciones de movimiento para luchar o huir, estado de alerta a las personas de mi alrededor, principal durante mi viaje en los buses y de camino de regreso a mi casa, después de salir de clases en la tarde, estado primitivo de vulnerabilidad y recuerdos con percepción tipo daño y ataque hacia mi persona, por parte de las personas de mi alrededor, ya que algunas de esas personas en los buses, son mujeres persecutoras de un grupo cuadrilla de mujeres de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, que no me caen bien y las odio, llegando a veces a llorar al baño de mi casa, por la intensidad del pánico de ese día.
 
 
 2. Psicosis, pérdida de contacto temporal de mi alrededor.
 
-    - Estado mental de psicótico breve, por unos segundos, varias veces al día, a partir del año 2024, y por varios minutos de minutos entre los años 2020 a 2023.
+    - Estado mental psicótico breve, por unos segundos, varias veces al día, a partir del año 2024. Estado mental psicótico por varios minutos de minutos, entre los años 2020 a 2023.
 
     - Efecto aumentado por uso de antipsicóticos en pastillas / tabletas de Risperidona y drogas inyectadas en las madrugadas y noches, que desconozco el nombre, con ventana de período psicótico activo e intenso, con pánico por uso de antipsicótico, entre las 4:00 pm a 7:00 pm, durante el atardecer y anochecer, entre los años 2020 a 2023.
 
-    - En mi casa, me siento como con anestesia en mis sentidos, dejo de poner atención a mi alrededor, a veces siento tipo desrealización / despersonalización, a veces mientras tengo movimientos de ojos tipo EMDR en trauma, al pasar los segundos, voy teniendo contacto con mi alrededor de las habitaciones, vuelvo a percibir con mis ojos que hay frente a mi y siento los objetos en mis manos, el frío o calor, el agua en movimiento, siento los calambres por dispositivos debajo de mi piel y calambres en músculos, puntos gatillo.
+    - En mi casa, me siento como con anestesia en mis sentidos, dejo de poner atención a mi alrededor, a veces siento tipo desrealización / despersonalización. Mientras tengo movimientos de ojos tipo EMDR en trauma, al pasar los segundos, voy teniendo contacto con mi alrededor de la habitación, vuelvo a percibir con mis ojos que hay frente a mi, siento los objetos en mis manos, el frío o calor, el agua en movimiento, sonido hipnótico en Smartphones, lagartijas gecko sonando, siento los calambres por dispositivos debajo de mi piel y calambres en músculos, puntos gatillo.
 
     - En mi casa, durante unos segundos cuando eyaculo, principal cuando eyaculo rápido y brusco, aumentado cuando me siento excitado sexual, por inyecciones de drogas en las madrugadas y noches, sintiendo excitación sexual desde la mañana hasta detenerse al eyacular, e hipertensión reactiva con psicosis. A veces durante unos segundos por el uso de dispositivos en el baño que hacen voz de hombre o mujer diciendo mi nombre llamándome.
 
-    - En la calle, siento movimiento de ojos tipo mirada pérdida y mirada de visión de túnel, en caso de estar frente a frente de personas en la calle en movimiento.
+    - En la calle, siento movimiento de ojos tipo mirada pérdida y mirada con visión de túnel, en caso de estar frente a frente de personas, en la calle en movimiento.
 
     - En la calle, sonido pasivo hipnótico en dispositivos Smartphone, en los celulares de personas alrededor de mi, fuera de mi casa, personas en radio cercano de radiofrecuencia a los dispositivos en mi cuerpo.
 
@@ -619,18 +619,18 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - En mi casa, mientras escucho las noticias Noticias Repretel - Canal 6, estado de psicosis por unos segundos.
 
-    - Después de inyecciones de drogas en las madrugadas y noches en nalgas de piernas y músculos deltoides de brazos, efecto durante las mañanas entre 6:00 am a 8:00 am, en horario cuando escucho las noticias, Noticias Repretel - Canal 6. Referencian algo de un anuncio publicitario con contenido relacionado al tema servicio sanitario, siento calor en medio de las nalgas, sensación incómodo, ansiedad y estado de psicosis con despersonalización o desrealización.
+    - Después de inyecciones de drogas en las madrugadas y noches, en nalgas de piernas y músculos deltoides de brazos, efecto durante las mañanas entre 6:00 am a 8:00 am, en horario cuando escucho las noticias, Noticias Repretel - Canal 6. Referencian algo de un anuncio publicitario con contenido relacionado al tema servicio sanitario, siento calor en medio de las nalgas, sensación incómodo, ansiedad y estado de psicosis con despersonalización o desrealización.
 
 
 3. Distonía focal o acatisia en los ojos, tipo EMDR.
 
-    - Movimiento de ojos tipo distonía o acatisia, en forma de zig zag por varios minutos, movimiento de ojos de tipo EMDR - Desensibilización y Reprocesamiento por Movimientos Oculares.
+    - Movimiento de ojos tipo distonía o acatisia, en forma de zig zag y circular, por varios minutos, movimiento de ojos de tipo EMDR - Desensibilización y Reprocesamiento por Movimientos Oculares.
 
-    - En caso de estar en contacto, con algo que me recuerde un momento de miedo o que quiero evitar, veo imágenes y vídeos en mi celular o Laptop, estoy en un lugar con ciertas personas en específico.
+    - En caso de estar en contacto, con algo que me recuerde un momento de miedo o que quiero evitar, veo imágenes y vídeos en mi Smartphone o Laptop, estoy en un lugar con ciertas personas en específico.
 
-    - No puedo evitar el zig zag, ni incluso parpadeando. Por varios minutos de minutos, +10 min o +20 min de zig zag, llego a un momento, que miro a un punto fijo sin tener movimiento de zig zag, como si tuviera miopía o astigmatismo, una imagen frente a mi, se va separando y moviendo en 2 copias alejandosen a la misma velocidad y despacio, 2 réplicas del mismo tamaño y color, mientras estoy viviendo un flashback, sin sentimientos ni emociones con despersonalización o desrealización, sin recordar recuerdos del flashback pero mirando consciente de lo que tengo frente y directo hacia los ojos.
+    - No puedo evitar el zig zag, ni los movimientos circulares rápidos, ni incluso parpadeando. Por varios minutos de minutos, +10 min o +20 min de zig zag, llego a un momento, que miro a un punto fijo, sin tener movimiento de zig zag, como si tuviera miopía o astigmatismo, una imagen frente a mi, se va separando y moviendo en 2 copias alejandosen a la misma velocidad y despacio, 2 réplicas del mismo tamaño y color, mientras estoy viviendo un flashback, sin sentimientos ni emociones con despersonalización o desrealización, sin recordar recuerdos del flashback pero mirando consciente de lo que tengo frente y directo hacia los ojos.
 
-    - Durante el pico máximo de distonía focal con flashback, con forme la imagen doble se va moviendo y alejando, comienzo a sentir más intenso el flashback, hasta ver translúcido o borroso frente a mis 2 ojos la imagen frente a mis ojos, entre más intenso es el flashback más rápido es la velocidad de las 2 imágenes en copia alejandosen, hasta ser total translúcido o borroso.
+    - Durante el pico máximo de distonía focal con flashback, con forme la imagen doble se va moviendo y alejando, comienzo a sentir más intenso el flashback, hasta ver translúcido o borroso frente a mis 2 ojos la imagen frente a mi, entre más intenso es el flashback más rápido es la velocidad de las 2 imágenes en copia alejandosen, hasta ser total translúcido o borroso.
 
     - Un flashback sin recuerdos pero sintiendo que estoy viviendo por segunda vez "ese algo" que no me gustó. A veces sí, recuerdo el evento del flashback con imágenes rápidas de unos segundos, por el contexto físico o recuerdo voluntario, que vivo en ese instante y es similar al triggers por los 5 sentidos. Flashbacks de imágenes y no olores, ni sonidos, ni sabores, ni siento los calambres en mi piel, ni en los músculos.
 
@@ -641,21 +641,21 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Durante mis viajes en bus, con esa cuadrilla de mujeres y hombres del Tec de Cartago - Instituto Tecnológico de Costa Rica de los años 2011 a 2012 y Voca Heredia - Colegio Técnico Profesional de Heredia, durante mi último nivel técnico del año 2010, estudiante del Voca del año 2008 a 2010.
 
-    - Durante los días religiosos, días domingo, durante la transmisión de la misa Católica, en televisión Teletica - Canal 7, al hacer oración religiosa.
+    - Durante los días religiosos, días domingo, durante la transmisión de la misa Católica, en televisión Teletica - Canal 7, al yo hacer oración religiosa.
 
     - Durante cuando me siento triste y estoy con mi perro Body.
 
     - Durante el uso de la Laptop, por sus hackeos e uso de dispositivos para vulnerar mis dispositivos personales.
 
-    - Durante cuando escucho la radio, Radio Monumental con el programa Pelando el Ojo de 5:00 pm a 7:00 pm.
+    - Durante cuando escucho la radio, Radio Monumental con el programa Pelando el Ojo, de 5:00 pm a 7:00 pm.
 
-    - Durante mi estado de hipertensión reactiva y excitación sexual cuando me estoy bañando.
+    - Durante mi estado de hipertensión reactiva y excitación sexual, cuando me estoy bañando.
 
-    - Durante las noticias, Noticias Repretel.
+    - Durante las noticias, Noticias Repretel - Canal 6.
 
     - 6 sesiones de Terapia Electroconvulsiva por depresión severa, en el segundo internamiento en el mes de agosto de 2017, internamiento de mayo a agosto del año 2017, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
 
-    - Por el uso de dispositivos pasivos, que hacen y emiten sonido "tlak" para joder, meses antes de cada internamiento en el Hospital Nacional Psiquiátrico, 3 períodos de joder antes de cada internamiento, en los años 2013, 2017 y 2020.
+    - Por el uso de dispositivos pasivos, que hacen y emiten sonido "tlak" para joder, meses antes de cada internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, 3 períodos de joder antes de cada internamiento, en los años 2013, 2017 y 2020.
 
 
 5. Rumiar, tipo TOC - Transtorno Obsesivo Compulsivo.
