@@ -690,23 +690,33 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
     - En contexto judicial y de policía, durante ese día relacionado a mi persona, por parte de varias personas usando sus dispositivos.
 
 
-7. Despersonalización y desrealización.
-
-    - Como si los carros se movieran en cámara lenta.
-
-    - Como si tuviera un casco de motocicleta viendo a mi alrededor.
-
-    - Parece no haber profundidad de distancia en objetos, casas, vehículos ni peso.
-
-    - Como si las personas alrededor de mi fuesen dejá vu, se repite en esa persona en ese mismo lugar, una y otra vez y no son reales.
-
-    - Me cuesta memorizar, recordar cosas simples y hacer cálculos mentales sencillos, cuando estoy comprando en Palí Lagos o Pequeño Mundo.
-
-    - Capacidad de imaginar un bus en copias de espejo a los lados, arriba y abajo, en el puente entre Guararí y La Milpa, mientras camino y va pasando carros en movimiento, por las inyecciones de drogas en las noches y madrugadas para ese día.
+7. Desrealización y despersonalización.
 
     - Como si las hojas de árboles y plantas se movieran en cámara lenta con el viento y tuviera colores llamativos.
 
-    - Después de inyecciones en las madrugadas y noches para ese día, tipo drogas disociativas, de camino a pie al Hospital de Heredia - Hospital San Vicente de Paúl, cada mes por mi medicamento pastillas/tabletas, como si viera los blocks y tubos de cañería de cemento de una empresa de camino, en copias, sin peso y respetando el orden lógico del volumen del block y color, uno sobre otro para formar tipo muralla de 5 metros de alto, que puedo mover sin tocar y apilar más blocks, formando una pared en medio de la acera del lado opuesto mientras voy caminando, y en la carretera tipo alucinaciones, donde la muralla no toca el suelo y esta suspendido en el aire, que se mueve a la misma distancia que voy caminando, sin chocar con ningún carro en movimiento sobre la calle.
+    - Como si los carros en movimiento, se movieran en cámara lenta.
+
+    - Como si tuviera un casco de motocicleta viendo a mi alrededor.
+
+    - Parece no haber profundidad de distancia, ni peso, en objetos, casas, vehículos, postes de electricidad.
+
+    - Como si las personas alrededor de mi, fuesen dejá vu, se repite en esa persona en ese mismo lugar, una y otra vez y no son reales.
+
+    - Me cuesta memorizar, recordar cosas simples y hacer cálculos mentales sencillos, cuando estoy comprando en Palí Lagos o Pequeño Mundo.
+
+    - Capacidad de imaginar un bus en copias de espejo a los lados, arriba y abajo, en el puente entre Guararí y La Milpa, mientras camino y va pasando carros en movimiento, por las inyecciones de drogas en las madrugadas y noches para ese día.
+
+    - Ejemplo: Después de inyecciones de drogas en las madrugadas y noches para ese día, tipo drogas disociativas, de camino a pie al Hospital de Heredia - Hospital San Vicente de Paúl, cada mes por mi medicamento pastillas / tabletas. Como si los globos inflados de aire, en los conos de un taller de autos de camino, se movieran lento y cuando estoy a la par caminando, se detiene el viento y pareciera moversen a camara lenta o brusco por tormenta de huracán aproximando. Luego, como si viera los blocks y tubos de cañería de cemento de una empresa constructora, de camino, en copias, sin peso y respetando el orden lógico del volumen del block y color, uno sobre otro, para formar tipo muralla de 5 metros de alto, que puedo mover sin tocar y apilar más blocks s voluntad, formando una pared en medio de la acera del lado opuesto a donde estoy, mientras voy caminando, y en la carretera tipo alucinaciones, donde la muralla no toca el suelo y esta suspendido en el aire, que se mueve a la misma distancia que voy caminando, sin chocar con ningún carro en movimiento sobre la calle.
+
+    - Ejemplo: Después de pasar el parqueadero de buses de la empresa Busetas Heredianas, hasta la empresa Pequeño Mundo, mientras voy caminando. Los carros en la carretera bajan la velocidad, siento como si no fuera real, estar caminando, ni esos carros, buses, motos, me parece que todo se mueve muy lento y como si pudiera ver esos carros desde otro ángulo a donde estoy en la acera, también como si hubiera un espejo a 10 metros de mi en la carretera, delante mío, puedo imaginar ver el reflejo opuesto de los carros en tiempo real en movimiento, abstracto, olor a chocolate, por la fábrica de Chocolate que está de camino. No recuerdo haber escuchado audios del libro Interchange en Inglés, que estaba escuchando mientras camino en esa ruta, horas después de llegar a mi casa y rebobinar los audios, usando el historial de reproducción de VLC, para recordar si escuché esos audios.
+
+    - Ejemplo: Me siento con despersonalización y con rumiar, de lo último escrito en WhatsApp, mientras estoy en la cocina con mi Smartphone, no calculé bien el tamaño de la bolsa de Conflex de 1.5 kg, golpeé los utensilios que estaban cerca de la bolsa, cuchillo de sierra, mantequilla, derrame una taza con líquido, que mamá hizo para su cabello en la cerámica de la cocina, lo limpié, luego me siento como con desrealización, abstracto, capaz de mover y visualizar el movimiento en mi memoria, de objetos frente a mi, sin tocar los objetos, como si fuera unas torres de Hanoi en 3D, una taza de 250gr de mantequilla, un frasco de vidrio para agua, que era antes de anchoas, un frasco de vidrio más pequeño, para aceite con ajo molido, tarro de azúcar, tarro de mantequilla.
+
+
+
+
+
+
 
 
 
