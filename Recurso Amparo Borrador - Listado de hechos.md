@@ -826,15 +826,74 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
     - Hipnosis usando ruidos o sonidos tipo ruido blanco, diseñado para hipnosis, durante los anuncios publicitarios en Noticias Repretel - Canal 6, y en canciones en las emisoras de radios de Costa Rica.
 
 
+15. Hipertensión reactiva y excitado sexual.
+
+    - Como marcador psicótico usando drogas inyectadas en las madrugadas y noches, para provocar excitación sexual, hipertensión reactiva, despersonalización, ansiedad y depresión.
+
+
+16. Eyaculación durante las noches mientras duermo.
+
+    - Poluciones nocturnas, afectado por drogas desconocidas por mi, en pastillas / tabletas de Difenhidramina Clorhidrato, pastillas tomadas antes de dormir.
+
+    - Poluciones nocturnas, con sueños húmedos, algunas veces recuerdo parte del sueño antes y durante la eyaculación, otras veces me despierto asustado y de golpe durante la erección, tipo sueños de forma de pesadilla, con bastante olor a cloro.
+
+    - Uso de dispositivos para reproducir voces de personas y música durante la polución nocturna.
+
+
+17. Ansiedad y gases en estómago.
+
+    - Cuando tengo que cumplir un horario fijo de agenda,  donde tengo los minutos contados en las mañanas y debo evacuar / cagar rápido, como ir a clases presenciales en mis estudios. La ansiedad y el estrés de tener que aguntar ganas de evacuar heches, en todo el día, ya que me siento incómodo de usar servicio sanitario fuera de mi casa.
+
+    - Cuando bebo poca cantidad de agua y siento el estómago duro.
+
+    - Algunas veces, por uso de mis medicamentos de cada mes.
+
+    - Con mi familia en momentos de ansiedad, o mientras dan las noticias Noticias Repretel - Canal 6.
+
+
+18. Hemorroides y falsa ciática.
+
+    - Uso de dispositivos en mi ano y efectos secundarios de las inyecciones en las madrugadas y noches, pastillas / tabletas de cada mes, me provoca un poco de sangrado y punto negro en el papel higiénico, cuando voy a cagar en el servicio sanitario, incomodidad y picazón durante las tardes, o antes de dormir.
+
+    - Dolor al estar sentado por varios minutos, tipo adormecimiento de los músculos de la parte baja de las nalgas, tipo falsa ciática, a veces ocupo caminar, poner de pie cada rato, irme a mi cama a descansar.
+
+
+19. Flashbacks y Dejá Vus. Sin sentimientos ni emociones.
+
+    - Flashbacks de personas y momentos vividos, durante mis viajes en buses, desde Heredia, San José, hasta Cartago, y viceversa, que pasó durante mis estudios de la universidad, en los años 2011 a 2012, Tec de Cartago - Instituto Tecnológico de Costa Rica.
+
+    - Dejá vu al ver personas, en mi camino, fuera de cssa, principal una cuadrilla de mujeres en los buses y en todo el camino, desde los años 2010 hasta 2024, cuando están cerca de donde estoy, en varios lugares de la comunidad, las y los veo como dejá vu, tipo como con anestesia, sin sentimientos y sin sentir emociones.
+
+    - Dejá vu después de dormir y soñar, sobre la Escuela Finca Guararí, horas después, mientras camino en lo real, haciendo ejercicio de caminata por la comunidad Guararí y estoy pasando por esa escuela, como si viviera el sueño por segunda vez, pero despierto.
+
+
+20. Llorar, ganas de llorar y ya no quiero volver a llorar.
+
+    - Después de la agitación nerviosa y pánico provocado por antipsicótico y las drogas inyectadas en las madrugadas y noches.
+
+    - Después de dormir y soñar, también en flashback de recuerdos, con la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
+
+    - Después de recordar eventos, que no me han gustado y más al propio las personas alrededor, radios y televisoras de Costa Rica, lo hacen para joder.
+
+    - Durante la hipocresía de amor en la música, de las radios de Costa Rica para joder.
+
+    - Durante viajes de paseo de vacaciones, ganas de llorar, por la felicidad que estaba teniendo, a pesar de sentir pánico por antipsicótico, horas después, durante esos días.
+
+
+21. Odio y drogas inyectadas, para tratar de que olvide lo que hacen.
+
+    - Uso de drogas inyectadas en las madrugadas y noches, haciendo efecto de drogas disociativas tipo desrealización y despersonalización.
+
+    - Usando momentos de días de silencio, en medios de comunicación de radios y televisoras, cada cierta cantidad de semanas, después de hacer odio en mi persona, todos los días y todo el día por más de 2 meses csda día, anuncio publicitario del ácido hialurónico, "en 8 semanas se desvanecen machas y cicatrices".
+
+    - Por el uso de mi propia información obtenidos por sus dispositivos, para los sistemas de los medios de comunicación, para tratar de que olvide esas personas, usando esas drogas disociativas y el silencio en esos días, después de joder.
+
+    - Olvidar lo que han hecho por años personas que me persiguen usando mi información en forma de otros contextos y sistemas, hipocresía por 14 años, desde 2010, durante mis estudios de técnico medio en el VOCA de Heredia - Colegio Técnico Profesional de Heredia, mientras estudiaba Contabilidad y Finanzas.
 
 
 
 
-- Hipertensión reactiva y excitado sexual.
-- Eyaculación durante las noches mientras duermo.
-- Hemorroides y falsa ciática.
-- Flashbacks y Dejá Vus. Sin sentimientos ni emociones.
-- Odio y drogas inyectadas, para tratar de que olvide lo que hacen.
+
 - Odio y autoridad, en medios de comunicación costarricenses.
 - Escalofríos en varias partes del cerebro y cuerpo.
 - Problemas de memoria, al recordar cosas vividas hace unos minutos.
