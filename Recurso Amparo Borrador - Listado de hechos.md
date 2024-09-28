@@ -713,20 +713,123 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
     - Ejemplo: Me siento con despersonalización y con rumiar, de lo último escrito en WhatsApp, mientras estoy en la cocina con mi Smartphone, no calculé bien el tamaño de la bolsa de Conflex de 1.5 kg, golpeé los utensilios que estaban cerca de la bolsa, cuchillo de sierra, mantequilla, derrame una taza con líquido, que mamá hizo para su cabello en la cerámica de la cocina, lo limpié, luego me siento como con desrealización, abstracto, capaz de mover y visualizar el movimiento en mi memoria, de objetos frente a mi, sin tocar los objetos, como si fuera unas torres de Hanoi en 3D, una taza de 250gr de mantequilla, un frasco de vidrio para agua, que era antes de anchoas, un frasco de vidrio más pequeño, para aceite con ajo molido, tarro de azúcar, tarro de mantequilla.
 
 
+8. TDA - Transtorno Déficit de Atención.
+
+    - Uso de mis datos e información, en todos los medios de comunicación de Costa Rica, obteniendo datos de mi persona, usando los diferentes dispositivos en la casa y en la calle, para utilizar ese conocimiento con sus Sistemas de Inteligencia Artificial para sus experimentos.
+
+    - No puedo concentrarme mientras escucho algún televisor o radio activo, dentro de mi casa, de los vecinos y en la comunidad.
+
+    - No puedo recordar cosas si estoy estudiando algún tema.
+
+    - Uso de inyecciones en las madrugadas y noches, para generar TDA, mucha ansiedad y cortisol, ese mismo día que tengo que estudiar algo, principal cuando era estudiante activo de cursos libres del área en Informática y Computación, impartido por la organización ADI Guararí - Asociación de Desarrollo Integral de Guararí / CECI Centro Comunitario Inteligente, durante el año 2023. Nota: No continúe esos cursos, estado cursado como incompletos y sin finalizar, apagones de electricidad en Guararí, me sentía muy distraído y abrumado por el medicamento, con problemas de memoria para recordar las clases.
+
+    - Uso de dispositivos pasivos de sonido "tlak", alrededor de las habitaciones en cielorraso y ventanas, donde estudio, para joder mi paciencia.
+
+
+9. TOC - Transtorno Obsesivo Compulsivo y Paranoias.
+
+    - En momentos de compulsiones del TOC por anticipar sucesos, durante el pensamiento mágico, para crear el tercer pensamiento que una, 2 pensamientos contradictorios, durante: rumiar, depresión, hipertensión reactiva y excitación sexual.
+
+    - A veces, en momentos cuando estoy acelerado, hablar sólo en el baño, cómo si alguien me escucha con sus dispositivos espías, o como diálogo propio susurrando, analizando opciones de hechos. Comportamiento reducido por las pastillas / tabletas de Risperidona.
+
+    - Pensamiento instrusivos sobre varias partes de mi cuerpo, principal piernas, no puedo poner los pies paralelos hacia arriba, en posición del cuerpo boca arriba, mientras estoy en mi cama, por qué siento que eso me va excitar, y si me pongo de costado de mi cuerpo, me da calambres en la piel y músculos en varias partes de mi cuerpo, principal brazos, teniendo que poner boca arriba para no sentir esos calambres.
+
+    - No puedo dormir con mosquitos en mi dormitorio, me incómodo, tengo que matar esos bichos y no escuchar ruido para dormir tranquilo.
+
+    - Lavarme las manos y mojar el piso del baño, teniendo que secar el piso casi siempre y mojar el paño de secar las manos, gastar agua bañando, gastar papel higiénico.
+
+    - No pisar lineas divisoras de las aceras, fuera de mi casa, ni pisar los bordes de líneas con franjas en aceras.
+
+    - No pisar hormigas tipo zompopas.
+
+    - Percepción de daño a mi perro Body tipo sexual.
+
+    - Tomar mucho café.
+
+    - Echar alcohol gel, a la pantalla del Smartphone personal, cada vez después de salir de mi casa.
+
+    - Percepción de siempre va haber gente en los buses, que me están persiguiendo.
+
+    - Miradas de personas.
+
+    - Percepción que las conversaciones de personas, son sobre mi, risas y enojos de personas.
+
+    - Conversar por mensaje con la misma persona casi cada día durante semanas de semanas.
+
+    - No comentar videos de YouTube y Facebook, chats en vivo, por qué otras personas comentan en sus comentarios usando información de mi para ellos o ellas, no me da ganas de comentar, ya lo hacen por mí, o por joder de esas personas.
+
+    - Escuchar la radio para escuchar que tienen que decir de mí, por estar espiando a mi y otras personas por el uso de sus dispositivos espías.
+
+    - Barrer, limpiar y encerar la casa, escuchando mi música elegida, creando historias.
+
+
+10. TID - Transtorno de Identidad Disociativo.
+
+    - Pensar, usando la forma de tercera persona, dirigido a mi mismo, tipo reflexivo hacía futuro. "Él va a ...", en vez de [Yo] "Voy hacer ...", el robo de mi pensamiento por terceras personas, dirigido de mi mismo a mi mismo, explicándome planes a futuro, tipo despersonalización, como si mis planes no fueran míos, pero yo tengo que hacer esos planes. También analizando, en esa forma de disociación / despersonalización, como me describe otra persona en sus planes describiendo a mi, usando "Él va a ...".
+
+    - Uso de drogas inyectadas en la madrugada y noche de ese mismo día, como marcador psicótico de 1 día, en el Banco Nacional de Costa Rica, en octubre de 2023, dónde un grupo de personas planearon uso de personas, de apariencia delictiva, cerca de dónde estoy haciendo fila, para entrar a realizar trámites en esa institución, mientras las radios de Costa Rica y televisoras Costarricense, usaban mi información para esas personas delictivas en ese momento.
+
+    - TID en cierto grado de espectro disociativo en temas:
+    1. Contabilidad, Voca Heredia - Colegio Técnico Profesional de Heredia, mientras estudiaba Contabilidad y Finanzas.
+    2. Informática, Universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, mientras estudiaba Bachillerato en Ingeniería en Computación.
+    3. Durante mis viajes en bus.
+    4. Frente a diferentes fuerzas de policías.
+    5. La CCSS - Caja Costarricense del Seguro Social.
+    6. Medios de comunicación y redes sociales.
+    7. Recuerdos de infancia, como tipo con amnesia.
+
+
+11. Espectro Autismo y odio.
+
+    - Durante mi último año, con mis estudios de Contabilidad y Finanzas, en los buses Heredia a Guararí, en el año 2010, estudiante del VOCA de Heredia - Colegio Técnico Profesional de Heredia. Aumentado durante la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, en los años 2011 a 2012, con una cuadrilla de mujeres en los buses, calles y otros estudiantes de la universidad.
+
+    - Después de las inyecciones de drogas en las madrugadas y noches para ese mismo día, durante los staques de pánico por agitación nerviosa al uso de antipsicótico.
+
+    - No veo a los ojos de las personas.
+    - No hablo cosas de mi a otras personas desconocidas, estricto lo necesario, que considero que esa persona ocupa.
+    - No hablo con mis familiares, ni personas conocidos y desconocidos durante los viajes en bus, estricto lo necesario.
+    - No me gusta contestar llamadas de teléfono mientras voy en bus.
+    - No me gusta escuchar hablar gente desconocida usando mi información, como empatía.
+    - No me gusta escuchar hablar la radio de los buses usando mi información.
+    - No me gusta sentarme a la par de gente conocida para hablar en los buses, prefiero otro asiento.
+    - No me gusta gritar en la calle.
+    - No me gusta estar rodeado de mucha gente y menos si tienen una doble intención de estar en ese lugar que yo estoy.
+    - Me altera, los sonidos de pájaros cuervos negros.
+    - Me altera, los sonidos de engranaje de tuercas en los buses.
+    - Me altera, los parpadeos de las luces en los buses.
+
+
+12. Gusano musical por 2 horas seguido en las mañanas.
+
+    - Después de inyecciones de droga en las madrugadas y noches, para ese mismo día.
+
+    - Repetir frases de varias palabras contiguo, en una oración, con ritmo y tono de la persona y sonidos; o repetir segundos de sonidos, solo ruido, sin palabras ni voz de persona, con ritmo y tono.
+
+    - Música escuchado el día anterior, se repite la frase hasta 2 veces por minuto, por 2 horas seguidas hasta bajar la intensidad, con algunos minutos de descanso, si algo me distrae. Escucho como si estuviera escuchando esa frase o sonido, sin estar escuchando la música con los audífonos, la mayoría de veces, es menos fuerte el volumen del sonido o frase, pero lo logro entender.
+
+    - Algunas veces al pasar los minutos de minutos, escucho otras frases o ruido de esa misma canción, y se vuelve a repetir hasta perder la intensidad del recuerdo al pasar 2 horas o al concentrarme en sonidos reales de mi alrededor. Inicia después de despertar en las mañanas tipo 7:00 am a 8:00 am, por 2 horas seguidas.
+
+
+13. Gusano musical durante la ducha al bañar, por unos minutos capaz de recordar varias canciones en tono y ritmo.
+
+    - Después de inyecciones de droga en las madrugadas y noches, para ese mismo día.
+
+    - Mientras me estoy bañando en la ducha, sintiendo el agua de la ducha en movimiento, tengo la capacidad de escuchar frases de oraciones de voz de personas, en ritmo y tono, de diferentes canciones, escuchadas el día anterior.
+
+    - Capacidad de controlar cuál frase de canción quiero escuchar en mi memoria, atravesando un orden de mínimo hasta 14 canciones diferentes como gusano musical en ritmo y tono, durando unos segundos por cada frase, como si yo hablara usando las frases de esas canciones.
+
+    - Pasa en las mañanas después de despertar e irme a bañar. Mientras escucho susurros de la voz de mi vecino, enojado y sorprendido, mientras me estoy duchando.
+
+
+14. Hipnosis por anuncios publicitarios durante las noticias y canciones en las radios.
+
+    - Hipnosis usando ruidos o sonidos tipo ruido blanco, diseñado para hipnosis, durante los anuncios publicitarios en Noticias Repretel - Canal 6, y en canciones en las emisoras de radios de Costa Rica.
 
 
 
 
 
 
-
-
-- TDA - Transtorno Déficit de Atención.
-- TOC - Transtorno Obsesivo Compulsivo y Paranoias.
-- TID - Transtorno de Identidad Disociativo.
-- Espectro Autismo y odio.
-- Gusano musical por 2 horas seguido en las mañanas.
-- Gusano musical por unos minutos capaz de recordar varias canciones en tono y ritmo.
 - Hipertensión reactiva y excitado sexual.
 - Eyaculación durante las noches mientras duermo.
 - Hemorroides y falsa ciática.
