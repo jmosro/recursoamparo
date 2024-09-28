@@ -596,9 +596,21 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Fecha de inicio: Desde marzo de 2020 a septiembre de 2023, durante 3 años y 6 meses seguidos. Después de mi tercer internamiento en marzo de 2020, en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, con el cambio de antipsicótico, por el diagnóstico de Esquizofrenia Paranoide, tube agitación nerviosa por antipsicótico.
 
-    - Donde ocurre: Durante el año 2020 hasta 2023, tube que recurrir a momentos de sonidos binaurales con la técnica de Respiración Diafragmática Lenta, para sobrellevar la intensidad del pánico, duración de 2 a 4 horas sin detenerse, fluctuando el nivel de intensidad, algunas veces durante mis clases, cuando era estudiante en IPEC Santo Domingo de Heredia, estudiante activo del año 2019 a 2022, y durante mis viajes en los buses, bus de Santo Domingo de Heredia al centro de la cuidad de Heredia y bus de Heredia Centro a Guararí. Un estado alterado de uno de los 3 cerebros, el cerebro reptiliano.
+    - Donde ocurre: Durante el año 2020 hasta 2023, tube que recurrir a momentos de sonidos binaurales con la técnica de Respiración Diafragmática Lenta, para sobrellevar la intensidad del pánico, duración de 2 a 4 horas sin detenerse, fluctuando el nivel de intensidad, algunas veces durante mis clases, cuando era estudiante en IPEC Santo Domingo de Heredia - Instituto Profesional de Educación Comunitaria Santo Domingo de Heredia, estudiante activo de los años 2019 a 2022, y durante mis viajes en los buses, bus de Santo Domingo de Heredia al centro de la cuidad de Heredia y bus de Heredia Centro a Guararí. Un estado alterado de uno de los 3 cerebros, el cerebro reptiliano.
 
-    - Efectos secundarios: Durante el pánico por uso de antipsicótico, sentía temblor en el cuello de la cabeza y manos, nerviosismo, visión con puntos negros en mis 2 ojos, pupilas muy dilatadas, sudoración, movimientos de los brazos y piernas con control absoluto y calculando acciones de movimiento para luchar o huir, estado de alerta a las personas de mi alrededor, principal durante mi viaje en los buses y de camino de regreso a mi casa, después de salir de clases en la tarde, estado primitivo de vulnerabilidad y recuerdos con percepción tipo daño y ataque hacia mi persona, por parte de las personas de mi alrededor, ya que algunas de esas personas en los buses, son mujeres persecutoras de un grupo cuadrilla de mujeres de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, que no me caen bien y las odio, llegando a veces a llorar al baño de mi casa, por la intensidad del pánico de ese día.
+    - Efectos secundarios: Durante el pánico por uso de antipsicótico.
+    1. Temblor en el cuello de la cabeza y manos.
+    2. Nerviosismo.
+    3. Visión con puntos negros en mis 2 ojos.
+    4. Pupilas muy dilatadas abiertas.
+    5. Expresión fácil de terror a las personas alrededor y depresión.
+    6. Sudoración por todo el cuerpo.
+    7. Movimientos de los brazos y piernas con control absoluto y calculando acciones de movimiento para luchar o huir.
+    8. Estado de alerta, a las personas de mi alrededor, principal durante mi viaje en los buses y de camino de regreso a mi casa, después de salir de clases en la tarde.
+    9. Estado primitivo de vulnerabilidad.
+    10. Recuerdos con percepción tipo daño y ataque hacia mi persona, por parte de las personas de mi alrededor, ya que algunas de esas personas en los buses, son mujeres persecutoras de un grupo cuadrilla de mujeres, de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica y del VOCA de Heredia - Colegio Técnico Profesional de Heredia.
+    11. Odio a esas personas persecutoras, que me caen mal durante 14 años seguidos.
+    12. Llegando a veces a llorar al baño de mi casa, por la intensidad del pánico de ese día.
 
 
 2. Psicosis, pérdida de contacto temporal de mi alrededor.
@@ -607,7 +619,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Efecto aumentado por uso de antipsicóticos en pastillas / tabletas de Risperidona y drogas inyectadas en las madrugadas y noches, que desconozco el nombre, con ventana de período psicótico activo e intenso, con pánico por uso de antipsicótico, entre las 4:00 pm a 7:00 pm, durante el atardecer y anochecer, entre los años 2020 a 2023.
 
-    - En mi casa, me siento como con anestesia en mis sentidos, dejo de poner atención a mi alrededor, a veces siento tipo desrealización / despersonalización. Mientras tengo movimientos de ojos tipo EMDR en trauma, al pasar los segundos, voy teniendo contacto con mi alrededor de la habitación, vuelvo a percibir con mis ojos que hay frente a mi, siento los objetos en mis manos, el frío o calor, el agua en movimiento, sonido hipnótico en Smartphones, lagartijas gecko sonando, siento los calambres por dispositivos debajo de mi piel y calambres en músculos, puntos gatillo.
+    - En mi casa, me siento como con anestesia en mis sentidos, dejo de poner atención a mi alrededor, a veces siento tipo desrealización / despersonalización. Mientras tengo movimientos de ojos tipo EMDR en trauma, al pasar los segundos, voy teniendo contacto con mi alrededor de la habitación, vuelvo a percibir con mis ojos que hay frente a mi, siento los objetos en mis manos, el frío o calor, el agua en movimiento, sonido hipnótico en Smartphones alrededor, lagartijas gecko sonando, siento los calambres por dispositivos debajo de mi piel y calambres en músculos, puntos gatillo.
 
     - En mi casa, durante unos segundos cuando eyaculo, principal cuando eyaculo rápido y brusco, aumentado cuando me siento excitado sexual, por inyecciones de drogas en las madrugadas y noches, sintiendo excitación sexual desde la mañana hasta detenerse al eyacular, e hipertensión reactiva con psicosis. A veces durante unos segundos por el uso de dispositivos en el baño que hacen voz de hombre o mujer diciendo mi nombre llamándome.
 
@@ -615,11 +627,11 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - En la calle, sonido pasivo hipnótico en dispositivos Smartphone, en los celulares de personas alrededor de mi, fuera de mi casa, personas en radio cercano de radiofrecuencia a los dispositivos en mi cuerpo.
 
-    - Cuando estoy al aire libre, en la calle o patio de mi casa, minutos antes de llover, oscuro y rayería, esos minutos hasta la lluvia, siento una sensación de vacío, miedo, pánico, como si eso quiere dañarme y debo ponerme a salvo.
+    - Cuando estoy al aire libre, en la calle o patio de mi casa, minutos antes de llover, oscuro y hay rayería, esos minutos hasta la lluvia, siento una sensación de vacío, miedo, pánico, como si eso quiere dañarme y debo ponerme a salvo.
 
     - En mi casa, mientras escucho las noticias Noticias Repretel - Canal 6, estado de psicosis por unos segundos.
 
-    - Después de inyecciones de drogas en las madrugadas y noches, en nalgas de piernas y músculos deltoides de brazos, efecto durante las mañanas entre 6:00 am a 8:00 am, en horario cuando escucho las noticias, Noticias Repretel - Canal 6. Referencian algo de un anuncio publicitario con contenido relacionado al tema servicio sanitario, siento calor en medio de las nalgas, sensación incómodo, ansiedad y estado de psicosis con despersonalización o desrealización.
+    - Después de inyecciones de drogas en las madrugadas y noches, en nalgas de piernas y músculos deltoides de brazos, efecto durante las mañanas entre 6:00 am a 8:00 am, en horario cuando escucho las noticias, Noticias Repretel - Canal 6. Referencian algo de un anuncio publicitario con contenido relacionado al tema servicio sanitario, siento calor en medio de las nalgas, sensación incómodo, ansiedad y estado de psicosis con desrealización / despersonalización.
 
 
 3. Distonía focal o acatisia en los ojos, tipo EMDR.
@@ -628,18 +640,18 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - En caso de estar en contacto, con algo que me recuerde un momento de miedo o que quiero evitar, veo imágenes y vídeos en mi Smartphone o Laptop, estoy en un lugar con ciertas personas en específico.
 
-    - No puedo evitar el zig zag, ni los movimientos circulares rápidos, ni incluso parpadeando. Por varios minutos de minutos, +10 min o +20 min de zig zag, llego a un momento, que miro a un punto fijo, sin tener movimiento de zig zag, como si tuviera miopía o astigmatismo, una imagen frente a mi, se va separando y moviendo en 2 copias alejandosen a la misma velocidad y despacio, 2 réplicas del mismo tamaño y color, mientras estoy viviendo un flashback, sin sentimientos ni emociones con despersonalización o desrealización, sin recordar recuerdos del flashback pero mirando consciente de lo que tengo frente y directo hacia los ojos.
+    - No puedo evitar el zig zag, ni los movimientos circulares rápidos, ni incluso parpadeando. Por varios minutos de minutos, +10 min o +20 min de zig zag, llego a un momento, que miro a un punto fijo, sin tener movimiento de zig zag, como si tuviera miopía o astigmatismo, una imagen frente a mi, se va separando y moviendo en 2 copias alejandosen a la misma velocidad y despacio, 2 réplicas del mismo tamaño y color, mientras estoy viviendo un flashback, sin sentimientos ni emociones con despersonalización / desrealización, sin recordar recuerdos del flashback, pero mirando consciente de lo que tengo frente y directo hacia los ojos.
 
-    - Durante el pico máximo de distonía focal con flashback, con forme la imagen doble se va moviendo y alejando, comienzo a sentir más intenso el flashback, hasta ver translúcido o borroso frente a mis 2 ojos la imagen frente a mi, entre más intenso es el flashback más rápido es la velocidad de las 2 imágenes en copia alejandosen, hasta ser total translúcido o borroso.
+    - Durante el pico máximo de distonía focal con flashback, con forme la imagen doble se va moviendo y alejando, comienzo a sentir más intenso el flashback, hasta ver translúcido o borroso frente a mis 2 ojos la imagen, entre más intenso es el flashback más rápido es la velocidad de las 2 imágenes en copia alejandosen, hasta ser total translúcido o borroso.
 
-    - Un flashback sin recuerdos pero sintiendo que estoy viviendo por segunda vez "ese algo" que no me gustó. A veces sí, recuerdo el evento del flashback con imágenes rápidas de unos segundos, por el contexto físico o recuerdo voluntario, que vivo en ese instante y es similar al triggers por los 5 sentidos. Flashbacks de imágenes y no olores, ni sonidos, ni sabores, ni siento los calambres en mi piel, ni en los músculos.
+    - Un flashback sin recuerdos pero sintiendo que estoy viviendo por segunda vez "ese algo" que no me gustó. A veces si recuerdo el evento, del flashback, con imágenes rápidas de unos segundos, por el contexto físico o recuerdo voluntario, que vivo en ese instante y es similar al trigger por los 5 sentidos. Flashbacks de imágenes y no olores, ni sonidos, ni sabores, ni siento los calambres en mi piel, ni en los músculos.
 
 
 4. Depresión.
 
     - Por el uso de drogas inyectadas en las madrugadas y noches, para sentirme fatal ese día, que ocupan ese grupo de personas, para sus experimentos y con sus Sistemas de Inteligencia Artificial, para sus sistemas en radios y televisoras de Costa Rica, también para grabar videos e imágenes para sus películas y mostrar el físico de mi cara con depresión a personas, que me espian usando sus diferentes dispositivos y en los buses.
 
-    - Durante mis viajes en bus, con esa cuadrilla de mujeres y hombres del Tec de Cartago - Instituto Tecnológico de Costa Rica de los años 2011 a 2012 y Voca Heredia - Colegio Técnico Profesional de Heredia, durante mi último nivel técnico del año 2010, estudiante del Voca del año 2008 a 2010.
+    - Durante mis viajes en bus, con esa cuadrilla de mujeres y hombres del Tec de Cartago - Instituto Tecnológico de Costa Rica, de los años 2011 a 2012 y VOCA de Heredia - Colegio Técnico Profesional de Heredia, durante mi último nivel técnico del año 2010, estudiante del VOCA de los años 2008 a 2010.
 
     - Durante los días religiosos, días domingo, durante la transmisión de la misa Católica, en televisión Teletica - Canal 7, al yo hacer oración religiosa.
 
@@ -660,9 +672,9 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 5. Rumiar, tipo TOC - Transtorno Obsesivo Compulsivo.
 
-    - A veces, cuando escribo mensajes por WhatsApp a mis familiares o amigos, dar vuelta a un tema escrito en el mensaje, recordar de varias formas el escrito, sin capacidad de recordar las palabras exactas original, de lo que escribí hace unos segundos, dando vueltas rumiante tipo depresión, despersonalización, odio y impulsivo.
+    - A veces, cuando escribo mensajes por WhatsApp a mis familiares o amigos, dar vuelta a un tema escrito en el mensaje, recordar de varias formas el escrito, sin capacidad de recordar las palabras exactas original, de lo que escribí hace unos segundos, dando vueltas rumiante tipo depresión, despersonalización, odio e impulsivo.
 
-    - A veces, horas después de inyecciones de droga en madrugadas y noches, cuando siento hipertensión reactiva, excitación sexual, impulsivo, mientras estoy escribiendo mensajes a mis contactos.
+    - A veces, horas después de inyecciones de droga en las madrugadas y noches, cuando siento hipertensión reactiva, excitación sexual, impulsivo, mientras estoy escribiendo mensajes a mis contactos.
 
 
 6. Ansiedad.
@@ -677,7 +689,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - En los estados de desrealización / despersonalización y pánico, por agitación nerviosa al uso de antipsicóticos y drogas inyectadas en las madrugadas y noches.
 
-    - Cuando trato de concentrarme en la Laptop, para estudiar temas relacionados a mis estudios, muchos estímulos alrededor jodiendo, televisión, radio, vecinos, sonidos pasivos, carros, perros ladrando, gente hablando, familiares hablando en la misma casa, Smartphone de familiares con música.
+    - Cuando trato de concentrarme en la Laptop, para estudiar temas relacionados a mis estudios, muchos estímulos alrededor jodiendo, televisión, radio, vecinos, sonidos pasivos "tlak", carros, perros ladrando, gente hablando, familiares hablando en la misma casa, Smartphone de familiares con música.
 
     - Hablar con otras personas frente a frente y afuera de mi casa, mientras me siento observado por personas alrededor.
 
@@ -685,7 +697,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Gases en el estómago y arrancar pelos de la nariz.
 
-    - Después de inyecciones en las madrugadas y noches para ese día, para utilizar ese día mi información, los medios de comunicación, radios y televisoras de Costa Rica, principal Noticias Repretel - Canal 6, obtenidos por uso de diferentes dispositivos, personas espiando que hago.
+    - Después de inyecciones de droga en las madrugadas y noches para ese día, para utilizar ese día mi información, los medios de comunicación, radios y televisoras de Costa Rica, principal Noticias Repretel - Canal 6, obtenidos por uso de diferentes dispositivos, y personas espiando que hago en ese momento.
 
     - En contexto judicial y de policía, durante ese día relacionado a mi persona, por parte de varias personas usando sus dispositivos.
 
@@ -706,9 +718,9 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Capacidad de imaginar un bus en copias de espejo a los lados, arriba y abajo, en el puente entre Guararí y La Milpa, mientras camino y va pasando carros en movimiento, por las inyecciones de drogas en las madrugadas y noches para ese día.
 
-    - Ejemplo: Después de inyecciones de drogas en las madrugadas y noches para ese día, tipo drogas disociativas, de camino a pie al Hospital de Heredia - Hospital San Vicente de Paúl, cada mes por mi medicamento pastillas / tabletas. Como si los globos inflados de aire, en los conos de un taller de autos de camino, se movieran lento y cuando estoy a la par caminando, se detiene el viento y pareciera moversen a camara lenta o brusco por tormenta de huracán aproximando. Luego, como si viera los blocks y tubos de cañería de cemento de una empresa constructora, de camino, en copias, sin peso y respetando el orden lógico del volumen del block y color, uno sobre otro, para formar tipo muralla de 5 metros de alto, que puedo mover sin tocar y apilar más blocks s voluntad, formando una pared en medio de la acera del lado opuesto a donde estoy, mientras voy caminando, y en la carretera tipo alucinaciones, donde la muralla no toca el suelo y esta suspendido en el aire, que se mueve a la misma distancia que voy caminando, sin chocar con ningún carro en movimiento sobre la calle.
+    - Ejemplo: Después de inyecciones de drogas en las madrugadas y noches para ese día, tipo drogas disociativas, de camino a pie al Hospital de Heredia - Hospital San Vicente de Paúl, cada mes por mi medicamento pastillas / tabletas. Como si los globos inflados de aire, en los conos de un taller de autos de camino, se movieran lento y cuando estoy a la par caminando, se detiene el viento y pareciera moversen a cámara lenta o brusco por tormenta de huracán aproximando. Luego, como si viera los blocks y tubos de cañería de cemento de una empresa constructora, de camino, en copias, sin peso y respetando el orden lógico del volumen del block y color, uno sobre otro, para formar tipo muralla de 5 metros de alto, que puedo mover sin tocar y apilar más blocks a voluntad, formando una pared en medio de la acera del lado opuesto a donde estoy, en forma horizontal tipo bloquear el tránsito, mientras voy caminando, y en la carretera tipo alucinación, donde la muralla no toca el suelo y esta suspendido en el aire, de 10 metros de largo y 2 metros de alto, que se mueve a la misma distancia que voy caminando, en vertical tipo muralla divisora de carril, sin chocar con ningún carro en movimiento sobre la calle, sobre y dividiendo el carril de los buses parqueados en el lado derecho de la carretera.
 
-    - Ejemplo: Después de pasar el parqueadero de buses de la empresa Busetas Heredianas, hasta la empresa Pequeño Mundo, mientras voy caminando. Los carros en la carretera bajan la velocidad, siento como si no fuera real, estar caminando, ni esos carros, buses, motos, me parece que todo se mueve muy lento y como si pudiera ver esos carros desde otro ángulo a donde estoy en la acera, también como si hubiera un espejo a 10 metros de mi en la carretera, delante mío, puedo imaginar ver el reflejo opuesto de los carros en tiempo real en movimiento, abstracto, olor a chocolate, por la fábrica de Chocolate que está de camino. No recuerdo haber escuchado audios del libro Interchange en Inglés, que estaba escuchando mientras camino en esa ruta, horas después de llegar a mi casa y rebobinar los audios, usando el historial de reproducción de VLC, para recordar si escuché esos audios.
+    - Ejemplo: Después de pasar el parqueadero de buses de la empresa Busetas Heredianas, hasta la empresa Pequeño Mundo, mientras voy caminando. Los carros en la carretera bajan la velocidad, siento como si no fuera real, estar caminando, ni esos carros, buses, motos, me parece que todo se mueve muy lento y como si pudiera ver esos carros desde otro ángulo a donde estoy en la acera, también como si hubiera un espejo a 10 metros de mi en la carretera, delante mío y en medio de la carrera, puedo imaginar ver el reflejo opuesto de los carros en tiempo real en movimiento, abstracto, olor a chocolate, por la fábrica de Chocolate que está de camino. No recuerdo haber escuchado audios del libro Interchange en Inglés, que estaba escuchando mientras camino en esa ruta, horas después de llegar a mi casa y rebobinar los audios, usando el historial de reproducción de VLC, para recordar si escuché esos audios.
 
     - Ejemplo: Me siento con despersonalización y con rumiar, de lo último escrito en WhatsApp, mientras estoy en la cocina con mi Smartphone, no calculé bien el tamaño de la bolsa de Conflex de 1.5 kg, golpeé los utensilios que estaban cerca de la bolsa, cuchillo de sierra, mantequilla, derrame una taza con líquido, que mamá hizo para su cabello en la cerámica de la cocina, lo limpié, luego me siento como con desrealización, abstracto, capaz de mover y visualizar el movimiento en mi memoria, de objetos frente a mi, sin tocar los objetos, como si fuera unas torres de Hanoi en 3D, una taza de 250gr de mantequilla, un frasco de vidrio para agua, que era antes de anchoas, un frasco de vidrio más pequeño, para aceite con ajo molido, tarro de azúcar, tarro de mantequilla.
 
@@ -732,9 +744,9 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - A veces, en momentos cuando estoy acelerado, hablar sólo en el baño, cómo si alguien me escucha con sus dispositivos espías, o como diálogo propio susurrando, analizando opciones de hechos. Comportamiento reducido por las pastillas / tabletas de Risperidona.
 
-    - Pensamiento instrusivos sobre varias partes de mi cuerpo, principal piernas, no puedo poner los pies paralelos hacia arriba, en posición del cuerpo boca arriba, mientras estoy en mi cama, por qué siento que eso me va excitar, y si me pongo de costado de mi cuerpo, me da calambres en la piel y músculos en varias partes de mi cuerpo, principal brazos, teniendo que poner boca arriba para no sentir esos calambres.
+    - Pensamientos instrusivos sobre varias partes de mi cuerpo, principal piernas, no puedo poner los pies paralelos hacia arriba, en posición del cuerpo boca arriba, mientras estoy en mi cama, por qué siento que eso me va excitar, y si me pongo de costado de mi cuerpo, me da calambres en la piel y en músculos de varias partes de mi cuerpo, principal brazos, teniendo que poner boca arriba para no sentir esos calambres.
 
-    - No puedo dormir con mosquitos en mi dormitorio, me incómodo, tengo que matar esos bichos y no escuchar ruido para dormir tranquilo.
+    - No puedo dormir con mosquitos / zancudos en mi dormitorio, me siento incómodo, tengo que matar esos bichos y no escuchar ruido para dormir tranquilo.
 
     - Lavarme las manos y mojar el piso del baño, teniendo que secar el piso casi siempre y mojar el paño de secar las manos, gastar agua bañando, gastar papel higiénico.
 
@@ -746,19 +758,19 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Tomar mucho café.
 
-    - Echar alcohol gel, a la pantalla del Smartphone personal, cada vez después de salir de mi casa.
+    - Echar alcohol gel, a la pantalla de mi Smartphone personal, cada vez después de salir de mi casa.
 
     - Percepción de siempre va haber gente en los buses, que me están persiguiendo.
 
     - Miradas de personas.
 
-    - Percepción que las conversaciones de personas, son sobre mi, risas y enojos de personas.
+    - Percepción que las conversaciones de personas, son sobre mi, risas y enojos de esas personas.
 
-    - Conversar por mensaje con la misma persona casi cada día durante semanas de semanas.
+    - Conversar por mensaje con la misma persona, casi cada día durante semanas de semanas.
 
     - No comentar videos de YouTube y Facebook, chats en vivo, por qué otras personas comentan en sus comentarios usando información de mi para ellos o ellas, no me da ganas de comentar, ya lo hacen por mí, o por joder de esas personas.
 
-    - Escuchar la radio para escuchar que tienen que decir de mí, por estar espiando a mi y otras personas por el uso de sus dispositivos espías.
+    - Escuchar la radio para escuchar que tienen que decir de mí por estar espiando, o que tienen que decir de otras personas por el uso de sus dispositivos espías.
 
     - Barrer, limpiar y encerar la casa, escuchando mi música elegida, creando historias.
 
@@ -787,15 +799,16 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - No veo a los ojos de las personas.
     - No hablo cosas de mi a otras personas desconocidas, estricto lo necesario, que considero que esa persona ocupa.
-    - No hablo con mis familiares, ni personas conocidos y desconocidos durante los viajes en bus, estricto lo necesario.
+    - No hablo con mis familiares, ni personas conocidos ni desconocidos, durante los viajes en bus, estricto lo necesario.
     - No me gusta contestar llamadas de teléfono mientras voy en bus.
     - No me gusta escuchar hablar gente desconocida usando mi información, como empatía.
-    - No me gusta escuchar hablar la radio de los buses usando mi información.
-    - No me gusta sentarme a la par de gente conocida para hablar en los buses, prefiero otro asiento.
+    - No me gusta escuchar hablar la radio de los buses usando mi información, mientras voy en el bus.
+    - No me gusta sentarme a la par de gente conocida para conversar en los buses, prefiero otro asiento e ir sólo.
     - No me gusta gritar en la calle.
-    - No me gusta estar rodeado de mucha gente y menos si tienen una doble intención de estar en ese lugar que yo estoy.
+    - No me gusta estar rodeado de mucha gente y menos si tienen una doble intención o triple intención, de estar en ese lugar que yo estoy.
     - Me altera, los sonidos de pájaros cuervos negros.
     - Me altera, los sonidos de engranaje de tuercas en los buses.
+    - Me altera, los sonidos de golpe de ventanas cayendo mientras llueve en los buses.
     - Me altera, los parpadeos de las luces en los buses.
 
 
@@ -805,20 +818,20 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Repetir frases de varias palabras contiguo, en una oración, con ritmo y tono de la persona y sonidos; o repetir segundos de sonidos, solo ruido, sin palabras ni voz de persona, con ritmo y tono.
 
-    - Música escuchado el día anterior, se repite la frase hasta 2 veces por minuto, por 2 horas seguidas hasta bajar la intensidad, con algunos minutos de descanso, si algo me distrae. Escucho como si estuviera escuchando esa frase o sonido, sin estar escuchando la música con los audífonos, la mayoría de veces, es menos fuerte el volumen del sonido o frase, pero lo logro entender.
+    - Música escuchadas el día anterior, se repite la frase hasta 2 veces por minuto, por 2 horas seguidas hasta bajar la intensidad, con algunos minutos de descanso, si algo me distrae. Escucho como si estuviera escuchando esa frase o sonido, sin estar escuchando la música con los audífonos, la mayoría de veces es menos fuerte el volumen del sonido o frase en mi memoria al original, pero lo logro entender.
 
-    - Algunas veces al pasar los minutos de minutos, escucho otras frases o ruido de esa misma canción, y se vuelve a repetir hasta perder la intensidad del recuerdo al pasar 2 horas o al concentrarme en sonidos reales de mi alrededor. Inicia después de despertar en las mañanas tipo 7:00 am a 8:00 am, por 2 horas seguidas.
+    - Algunas veces al pasar los minutos de minutos, escucho otras frases o ruido de esa misma canción, y se vuelve a repetir hasta perder la intensidad del recuerdo al pasar 2 horas o al concentrarme en sonidos reales de mi alrededor. Inicia después de despertar en las mañanas tipo 7:00 am a 9:00 am.
 
 
 13. Gusano musical durante la ducha al bañar, por unos minutos capaz de recordar varias canciones en tono y ritmo.
 
     - Después de inyecciones de droga en las madrugadas y noches, para ese mismo día.
 
-    - Mientras me estoy bañando en la ducha, sintiendo el agua de la ducha en movimiento, tengo la capacidad de escuchar frases de oraciones de voz de personas, en ritmo y tono, de diferentes canciones, escuchadas el día anterior.
+    - Mientras me estoy bañando, sintiendo el agua de la ducha en movimiento cayendo y en mi cuerpo, tengo la capacidad de escuchar unas cuantas palabras de frases de oraciones, de voz de la persona en esa canción, en ritmo y tono, escuchadas el día anterior.
 
-    - Capacidad de controlar cuál frase de canción quiero escuchar en mi memoria, atravesando un orden de mínimo hasta 14 canciones diferentes como gusano musical en ritmo y tono, durando unos segundos por cada frase, como si yo hablara usando las frases de esas canciones.
+    - Capacidad de controlar cuál frase de canción quiero escuchar en mi memoria, atravesando un orden de mínimo hasta 14 canciones diferentes como gusano musical, en ritmo y tono, durando unos segundos por cada frase, como si yo hablara, usando las frases de esas canciones.
 
-    - Pasa en las mañanas después de despertar e irme a bañar. Mientras escucho susurros de la voz de mi vecino, enojado y sorprendido, mientras me estoy duchando.
+    - Pasa por las mañanas, después de despertar e irme a bañar. Mientras escucho susurros de la voz de mi vecino, enojado y sorprendido, mientras me estoy duchando.
 
 
 14. Hipnosis por anuncios publicitarios durante las noticias y canciones en las radios.
@@ -835,14 +848,14 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Poluciones nocturnas, afectado por drogas desconocidas por mi, en pastillas / tabletas de Difenhidramina Clorhidrato, pastillas tomadas antes de dormir.
 
-    - Poluciones nocturnas, con sueños húmedos, algunas veces recuerdo parte del sueño antes y durante la eyaculación, otras veces me despierto asustado y de golpe durante la erección, tipo sueños de forma de pesadilla, con bastante olor a cloro.
+    - Poluciones nocturnas, con sueños húmedos, algunas veces recuerdo parte del sueño antes y durante la eyaculación, otras veces me despierto asustado y de golpe durante la erección, tipo sueños de forma de pesadilla, eyaculación con bastante olor a cloro.
 
-    - Uso de dispositivos para reproducir voces de personas y música durante la polución nocturna.
+    - Uso de dispositivos para reproducir voces de personas y música, durante la polución nocturna.
 
 
 17. Ansiedad y gases en estómago.
 
-    - Cuando tengo que cumplir un horario fijo de agenda,  donde tengo los minutos contados en las mañanas y debo evacuar / cagar rápido, como ir a clases presenciales en mis estudios. La ansiedad y el estrés de tener que aguntar ganas de evacuar heches, en todo el día, ya que me siento incómodo de usar servicio sanitario fuera de mi casa.
+    - Cuando tengo que cumplir un horario fijo de agenda,  donde tengo los minutos contados en las mañanas y debo evacuar / cagar / obrar rápido, como ir a clases presenciales en mis estudios. La ansiedad y el estrés de tener que aguntar ganas de evacuar heches, en todo el día, ya que me siento incómodo de usar servicio sanitario fuera de mi casa.
 
     - Cuando bebo poca cantidad de agua y siento el estómago duro.
 
@@ -860,36 +873,33 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 19. Flashbacks y Dejá Vus. Sin sentimientos ni emociones.
 
-    - Flashbacks de personas y momentos vividos, durante mis viajes en buses, desde Heredia, San José, hasta Cartago, y viceversa, que pasó durante mis estudios de la universidad, en los años 2011 a 2012, Tec de Cartago - Instituto Tecnológico de Costa Rica.
+    - Flashbacks de personas y momentos vividos, durante mis viajes en buses, desde Heredia, San José, hasta Cartago, y viceversa, de hechos sucedidos durante mis estudios de la universidad, en los años 2011 a 2012, Tec de Cartago - Instituto Tecnológico de Costa Rica.
 
-    - Dejá vu al ver personas, en mi camino, fuera de cssa, principal una cuadrilla de mujeres en los buses y en todo el camino, desde los años 2010 hasta 2024, cuando están cerca de donde estoy, en varios lugares de la comunidad, las y los veo como dejá vu, tipo como con anestesia, sin sentimientos y sin sentir emociones.
+    - Dejá vu al ver personas, en mi camino, fuera de casa, principal una cuadrilla de mujeres en los buses y en todo el camino, desde los años 2010 hasta 2024, cuando están cerca de donde estoy, en varios lugares de la comunidad, las y los veo como dejá vu, tipo como con anestesia, sin sentimientos y sin sentir emociones.
 
     - Dejá vu después de dormir y soñar, sobre la Escuela Finca Guararí, horas después, mientras camino en lo real, haciendo ejercicio de caminata por la comunidad Guararí y estoy pasando por esa escuela, como si viviera el sueño por segunda vez, pero despierto.
 
 
 20. Llorar, ganas de llorar y ya no quiero volver a llorar.
 
-    - Después de la agitación nerviosa y pánico provocado por antipsicótico y las drogas inyectadas en las madrugadas y noches.
+    - Llorar, después de la agitación nerviosa y pánico, provocado por antipsicótico y las drogas inyectadas en las madrugadas y noches.
 
-    - Después de dormir y soñar, también en flashback de recuerdos, con la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
+    - Llorar, después de dormir y soñar, también después de flashback de recuerdos, estando despierto durante el día, en temas de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica y los recuerdos de conversaciones sobre trabajar en la CCSS - Caja Costarricense del Seguro Social.
 
-    - Después de recordar eventos, que no me han gustado y más al propio las personas alrededor, radios y televisoras de Costa Rica, lo hacen para joder.
+    - Llorar, después de recordar eventos, que no me han gustado y hechos que hacen al propio las personas alrededor, radios y televisoras de Costa Rica, lo hacen para joder.
 
-    - Durante la hipocresía de amor en la música, de las radios de Costa Rica para joder.
+    - Llorar, durante la hipocresía de amor, en la música, de las radios de Costa Rica, para joder.
 
-    - Durante viajes de paseo de vacaciones, ganas de llorar, por la felicidad que estaba teniendo, a pesar de sentir pánico por antipsicótico, horas después, durante esos días.
+    - Llorar, durante mis viajes de paseo de vacaciones, por la felicidad que estaba teniendo, a pesar de sentir pánico por antipsicótico, durante esos días.
 
 
 21. Odio y drogas inyectadas, para tratar de que olvide lo que hacen.
 
-    - Uso de drogas inyectadas en las madrugadas y noches, haciendo efecto de drogas disociativas tipo desrealización y despersonalización.
+    - Uso de drogas inyectadas en las madrugadas y noches, haciendo efecto de drogas disociativas, tipo efecto en desrealización / despersonalización.
 
-    - Usando momentos de días de silencio, en medios de comunicación de radios y televisoras, cada cierta cantidad de semanas, después de hacer odio en mi persona, todos los días y todo el día por más de 2 meses csda día, anuncio publicitario del ácido hialurónico, "en 8 semanas se desvanecen machas y cicatrices".
+    - Usando momentos de varios días seguidos de silencio y tranquilidad, en medios de comunicación de radios y televisoras de Costa Rica, cada cierta cantidad de semanas, después de hacer odio en mi persona, todos los días y todo el día, por más de 2 meses, anuncio publicitario del ácido hialurónico en el cabello de mujeres, "en 8 semanas se desvanecen manchas y cicatrices, de 10 años".
 
-    - Por el uso de mi propia información obtenidos por sus dispositivos, para los sistemas de los medios de comunicación, para tratar de que olvide esas personas, usando esas drogas disociativas y el silencio en esos días, después de joder.
-
-    - Olvidar lo que han hecho por años personas que me persiguen usando mi información en forma de otros contextos y sistemas, hipocresía por 14 años, desde 2010, durante mis estudios de técnico medio en el VOCA de Heredia - Colegio Técnico Profesional de Heredia, mientras estudiaba Contabilidad y Finanzas.
-
+    - Por el uso de mi propia información obtenidos por sus dispositivos, para los sistemas de los medios de comunicación, para tratar de que olvide a esas personas, que me han perseguido por 14 años seguidos y la ansiedad, usando esas drogas disociativas, el silencio en esos días, después de joder. Para mi, es hipocresía por 14 años, desde el año 2010, durante mis estudios de Técnico Medio en el VOCA de Heredia - Colegio Técnico Profesional de Heredia.
 
 
 
