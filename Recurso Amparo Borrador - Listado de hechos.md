@@ -902,9 +902,21 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
     - Por el uso de mi propia información obtenidos por sus dispositivos, para los sistemas de los medios de comunicación, para tratar de que olvide a esas personas, que me han perseguido por 14 años seguidos y la ansiedad, usando esas drogas disociativas, el silencio en esos días, después de joder. Para mi, es hipocresía por 14 años, desde el año 2010, durante mis estudios de Técnico Medio en el VOCA de Heredia - Colegio Técnico Profesional de Heredia.
 
 
+22. Odio y autoridad, en medios de comunicación costarricenses.
+
+    - Odio y forma de represión por parte de algunas personas, usando medios de comunicación costarricenses, televisoras y radios del país, para imponer como forma autoridad contra mi, por cualquier intento de mi persona por decir "no", no quiero.
+
+    - Usando mi propia información contra mi, como forma de venganza usando esos sistemas y crear odio, hipocresía por 12 años, desde el año 2012, durante la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
+
+    - Volviendo a ejecutar ese sistema de espionaje, en los años 2015, 2016, 2017, mientras estaba trabajando en empleos formales y con cuotas patronales registrados ante la CCSS - Caja Costarricense del Seguro Social.
+
+    - Algunos sistemas fueron planeados y ejecutados, después del segundo internamiento contra voluntad en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, en 2017, con diagnóstico de Esquizofrenia Paranoide, las demandas judiciales en la policía OIJ - Organismo de Investigación Judicial, por violencia doméstica y demanda judicial de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, contra mi persona.
+
+    - Algunos sistemas en marcha, Sistemas de Inteligencia Artificial, después de mi tercer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, por Esquizofrenia Paranoide, en el año 2020. Por supuesto, que es odio y no es amor, hipocresía, narcisismo, venganza, la Ley del más Fuerte, drogas, corrupción, sicariato, para sus películas, religión y niño, resultados reflejado en la ola de violencia y criminalidad de Costa Rica, desde el año 2023.
 
 
-- Odio y autoridad, en medios de comunicación costarricenses.
+
+
 - Escalofríos en varias partes del cerebro y cuerpo.
 - Problemas de memoria, al recordar cosas vividas hace unos minutos.
 - Sueños largos que puedo recordar al despertar.
