@@ -1039,13 +1039,80 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
     - Rara vez, como si me despertara en la noche y algo o alguien me duerme de nuevo sin recordar, luego despierto de golpe recordando imágenes rápidas de mi alrededor, de que ya me había despertado horas antes, pero no estaba del todo despierto, es como despertar recordando que desperté pero sin ser consciente, zombie hipnotizado, también por el uso de sonidos pasivos "tlak" en el dormitorio.
 
 
+38. Sensible a los ruidos y agitado nervioso por antipsicótico.
 
 
+    - Ejemplo de sensible a los sonidos. Nervioso y tembloroso. También debido a las inyecciones de drogas en las madrugadas y noches.
+
+    1. Pájaros en el patio, yigüirros.
+    2. Niños en la escuela gritando, con eco en el gimnasio.
+    3. Turbinas de avión, pasando hacía terminal de aviones.
+    4. Traqueo de objetos en el techo, por el calor del Sol.
+    5. "Tlak" en el cielorraso.
+    6. Escape de gas de humo de camión trailer, a lo lejos.
+    7. Carros acelerando.
+    8. Bus acelerando.
+    9. Perro ladrando a lo lejos.
+    10. Lagartija donde la vecina.
+    11. Muchacho diciendo "ay jueputa", donde la vecina.
+    12. Gallo y gallinas, donde la vecina.
+    13. Mufla de carro acelerando, cerca al frente de la casa.
+    14. Perros quejándose, a lo lejos.
+    15. Mufla de motocicleta, a lo lejos.
+    16. Chillido dentro del oído izquierdo.
+    17. Manada de pericos, a lo lejos.
+    18. Turbina de avión, en dirección opuesta.
+    19. Golpe de pared de contenedor, de camión trailer a lo lejos.
+    20. Gotas de lluvia iniciando llover, no hay ruido de relámpagos.
+    21. Viento muy fuerte, con la lluvia.
+    22. Gotas de chorro de agua en el zinc del techo, contra el piso.
+    23. Lluvia constante, pero no muy fuerte.
+    24. Sonido avioneta, pasando en el cielo.
+    25. Vecino diciendo "vea".
+    26. Sirena de recreo de la escuela.
+    27. Ese día no se escucha sonido de sirena de carro de policía, a lo lejos ni cerca, ni motos de policía cerca.
+    28. Ese día no se escucha sonido de sirena del Centro Cívico por la Paz de Heredia.
+    29. Ese día no se escucha sonidos de disparos de arma de fuego.
+    30. Ese día no se escucha sonidos de sirena carro de ambulancia y bomberos.
 
 
+39. Rara vez, calor en las orejas, cuerpo y sensibilidad en venas o arterias en piernas.
+
+    - Algunos días, rara vez, cada cierta cantidad de meses, siento las orejas calientes, en mi casa o en la calle.
+
+    - En la calle, por la hipertensión reactiva, siento calor en el cuerpo y odio, también durante mis viajes en bus y debido a la vasoconstricción, de las venas y arterias por adrenalina.
+
+    - En momentos que me siento atarantado en las tardes, por unos instantes, siento tipo calambres o temblores, en las venas o arterias de mis piernas, contrarrestando ese efecto al respirar lento por unos minutos. Es un estado parecido a la desrealización / despersonalización, pero no intenso, es como estar en calma, mientras mi cuerpo está en modo preparado para luchar, correr e huir, modo alerta.
 
 
+40. Apnea del sueño.
 
+    - Al principio de tomar la Difenhidramina Clorhidrato / Benadryl, tenía apnea del sueño.
+
+    - Me quedo dormido, pero me escucho roncando, sonido de crujido en la ventana al mismo momento y despierto de golpe.
+
+
+41. Ganas de vomitar, atarantado y juegos de computadora.
+
+    - Algunas veces, durante los 3 años y 6 meses de pánico por uso de antipsicóticos e inyecciones de drogas en las madrugadas y noches.
+
+    - Siento ganas de vomitar y me siento en estado atarantado, al ver jugar juegos de computadora a mis hermanos o cuando yo estoy jugando, ocupo hacer pausas, para bajar la intensidad de las emociones, volver a sentir que estoy respirando.
+
+
+42. Euforia y dormir.
+
+    - En algunos momentos, de felicidad vividos por mi familia y por mi, a veces me cuesta dormir esa noche. A pesar de tomar en los últimos 4 años, desde el año 2020, Difenhidramina Clorhidrato / Benadryl para dormir. 
+
+    - Algunas veces, la Difenhidramina Clorhidrato me despierta y ocupo recurrir a la técnica de mantener concentrado en inhalar, retener, exhalar, lento por 4 segundos, pasar de +4 segundos a 4 segundos o de -4 segundos a 4 segundos, tratando de forzar mi respiración a durar entre alternancia, de 4 segundos hasta 7 segundos, y mi concentración en mi respiración, a veces cambiar a otro tema vivido, por estar en estado de rumiar algo positivo o negativo, que pasó durante el día, hasta quedarme dormido.
+
+
+43. Memoria episódica.
+
+    - Al escribir los hechos que me han ocurrido, a pesar de las drogas en las pastillas / tabletas de cada mes y las drogas inyectadas en las madrugadas y noches, que desconozco el nombre, el uso de antipsicóticos durante 11 años seguidos, desde el año 2013.
+
+    - Es como si me recordara y a la vez no me acuerdo, sin sentir las emociones intensas de ese recuerdo, tipo con anestesia, pero con capacidad de recordar, es como sentir el fuego sin quemarse.
+
+    - Me cuesta recordar mientras escucho música, al mismo tiempo que redacto, es como sentir niebla mental, pero me acuerdo, ocupo tiempo para dejar lo atarantado y momentos de pausa.
 
 
 ## Parte 13. Mis conclusiones.
