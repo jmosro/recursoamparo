@@ -915,10 +915,47 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
     - Algunos sistemas en marcha, Sistemas de Inteligencia Artificial, después de mi tercer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, por Esquizofrenia Paranoide, en el año 2020. Por supuesto, que es odio y no es amor, hipocresía, narcisismo, venganza, la Ley del más Fuerte, drogas, corrupción, sicariato, para sus películas, religión y niño, resultados reflejado en la ola de violencia y criminalidad de Costa Rica, desde el año 2023.
 
 
+23. Escalofríos en varias partes del cerebro y cuerpo, tipo convulsión.
+
+    - Escalofríos, cuando estoy muy enojado y siento que me hierve la sangre de cólera, contra algunas personas y durante las noticias, Noticias Repretel - Canal 6.
+
+    - Cuando me gusta algún tema, por ejemplo: cuando veo videos de persecución de carros por la policía.
 
 
-- Escalofríos en varias partes del cerebro y cuerpo.
-- Problemas de memoria, al recordar cosas vividas hace unos minutos.
+24. Tic nervioso en la columna hacia las 2 Piernas.
+
+    - Cuando estoy en mi cama, boca arriba y extendido mis piernas a lo largo, mientras estoy comenzando a dormirme, siento como un Tic nervioso, en una parte de la columna en el centro, a nivel de la base de los pulmones, luego me salta las 2 piernas como calambre muy rápido.
+
+    - Uso de pastillas / tabletas de Ácido Fólico, cuando estaba estudiando en la Escuela Finca Guararí, año 2004, también como forma de medicamento para depresión infantil.
+
+
+25. Actividad en nervios de intestino del estómago y diarrea.
+
+    - Algunas veces, siento como si algo me activa un nervio del intestino grueso. Me causa diarrea y gases muy olorosos.
+
+
+26. Temblor Zig Zag en el dedo indice de la mano dominante derecha.
+
+    - Actividad nerviosa por los dispositivos en mis nervios de mi mano derecha, provocando movimiento de izquierda a derecha del dedo índice, repitiendo casi como 4 veces ese zig zag y rápido, durante 2 segundos seguidos.
+
+
+27. Problemas de memoria, al recordar cosas vividas hace unos minutos y amnésico.
+
+    - No puedo recordar los últimos instantes vividos, por las inyecciones de drogas disociativas y el TDA, durante las noticias Noticias Repretel - Canal 6, por el uso de mi información obtenidos por los dispositivos en mi cuerpo, casa y hackeo de mis dispositivos personales.
+
+    - Sino tomo unos minutos de pausa en mis estudios, no puedo recordar lo que acabo de leer, es un estado como con anestesia, me cuesta recordar los últimos minutos, soy capaz de leer y entender las palabras, pero no puedo recordar eso. No puedo recordar el punto exacto, de donde leí lo que quiero recordar.
+
+
+28. Bloqueo mental, enojo, odio, hipertensión reactiva y desrealización / despersonalización, confusión.
+
+    - Bloqueo mental e hipertensión reactiva por inyecciones de drogas en las noches y madrugadas para ese día.
+
+    - Ejemplo: Mientras voy a la pulpería, caminando con hipertensión reactiva y enojo de las personas al propio en el camino. En la pulpería, me cuesta hacer cálculos mentales, bloqueado a la vez, mientras trato de recordar que tengo que comprar, al tratar de sumar el precio de una bolsa de Arroz Tío Pelón de 1.8 kg a 80% grano entero + un paquete de harina Nacarina + 2 huevos, que no se pase de 3.000. Llevaba 3.950 colones en billetes y monedas, mientras creí que tenía 2.950 colones, entonces agregué +2 huevos, compré 4 huevos al darme cuenta que calculé mal los billetes, me siento en estado anestesiado con desrealización / despersonalización y muy muy muy enojado.
+
+
+
+
+
 - Sueños largos que puedo recordar al despertar.
 
 
