@@ -953,17 +953,90 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
     - Ejemplo: Mientras voy a la pulpería, caminando con hipertensión reactiva y enojo de las personas al propio en el camino. En la pulpería, me cuesta hacer cálculos mentales, bloqueado a la vez, mientras trato de recordar que tengo que comprar, al tratar de sumar el precio de una bolsa de Arroz Tío Pelón de 1.8 kg a 80% grano entero + un paquete de harina Nacarina + 2 huevos, que no se pase de 3.000. Llevaba 3.950 colones en billetes y monedas, mientras creí que tenía 2.950 colones, entonces agregué +2 huevos, compré 4 huevos al darme cuenta que calculé mal los billetes, me siento en estado anestesiado con desrealización / despersonalización y muy muy muy enojado.
 
 
+29. Sueños largos que puedo recordar al despertar.
+
+    - Sueños largos que puedo recordar al despertar, de eventos vívidos en mi vida.
+
+    - Otros sueños son influencia y provocados por el uso de dispositivos que son usados para emitir audio, también por el uso de mi Smartphone Android personal, para generar audio durante mis fases de sueño.
+
+    - Algunos ejemplos de contextos soñados:
+    1. Contexto de serpientes y culebras.
+    2. Contexto de gente persiguiendo a mi persona.
+    3. Contexto de personas por la policía.
+    4. Contexto de estudios, en la escuela, colegio y universidad.
+    5. Contexto de sueños húmedos.
 
 
+30. Vision de túnel con hipertensión reactiva y desrealización.
 
-- Sueños largos que puedo recordar al despertar.
+    - Durante el efecto de las inyecciones de drogas disociativas en las madrugadas y noches, para ese día.
+
+    - Desrealización mientras salgo a caminar por la comunidad, como ejercicio físico, con mi mamá.
+
+    - Efecto de hipertensión reactiva y visión de túnel, al cruzar caminando una calle, con carros en movimiento hacia mi dirección.
+
+    - También, en cruce de semáforo frente a Walmart San Pablo / Lagos, mientras los carros van desacelerando y cuando queda pocos segundos, para que el semáforo cambie de color, con el pitido sonando.
 
 
+31. Acelerado, con energía, tipo impulsivo y accidentes.
+
+    - Dependiendo de la droga inyectada en las madrugadas y noches, o la ausencia de golpe de la inyección, me siento acelerado, con mucha energía.
+
+    - Algunas veces al coger objetos como vasos, escobas, palo pisos / trapeador, o al escribir mensajes en mi celular, Smartphone Android personal, me siento impulsivo, con movimientos rápidos en piernas y brazos, algunos movimientos provocan choque con otros objetos cercanos, o mal movimiento quebrando vasos, o tener que reescribir palabras en mensajes enviados.
+
+    - Cuando me siento acelerado, haciendo la barba en el baño, a la misma vez que estoy analizando un recuerdo, tipo rumiar, disminuye mi capacidad de tener mi atención en 2 cosas a la vez, memoria de trabajo haciendo la barba con rasurador presto-barba y jabón. Mi memoria temporal analizando varias perspectivas de un tema, mi atención hacía objetos. Calculando mal mis movimientos de manos con los objetos y algunos momentos provocando cortadas en mi cara.
+
+    - Cuando me baño, mientras estoy lavando mis pies, en la ducha, a la misma vez que estoy analizando un tema en mi memoria, disminuye mi capacidad de equilibrio, balanceando tipo mareo, mientras un pie no toca el suelo.
 
 
+32. Sonido sereno al anochecer y ruido blanco.
+
+    - En algunos momentos, por varios minutos, al despertar y al atardecer, escucho ruido blanco en mis oídos, no sé si es producto de los dispositivos dentro de mis oídos.
+
+    - A veces después de tomar la pastilla / tableta de Difenhidramina Clorhidrato / Benadryl, me produce ese estado de sonido de sereno o ruido blanco antes de dormir.
+
+    - Es como escuchar el sereno del anochecer, al aire libre, la oscuridad en una noche cálida, "el canto de las sirenas de mar", o sentirse descansado después de despertar de una siesta de unos minutos, en la tarde-noche.
 
 
+33. Una única vejiga grande en lengua o labio de la boca, y una cortada en centro labios de la boca
 
+    - Cada cierta cantidad de días, amanezco con una vejiga grande y única en la lengua, o una única vejiga en un labio por dentro de la boca, de 3 milímetros de ancho. Me dura hasta por 4 días seguidos.
+
+    - Por más vasos de agua que beba varias veces durante el día, no se me quita, se reduce el malestar y me incomoda hablar.
+
+    - Si no tomo agua, en el centro del labio inferior de la boca, por fuera, me molesta como si se me está haciendo una cortada, por exceso de calor en el estómago, a veces siento que se está poniendo de color rojo oscuro a morado, ocupo estar tomando agua por varios días seguidos.
+
+
+34. Ánimo neutro y despersonalización.
+
+    - No siento felicidad, pero tampoco siento tristeza, es como estar enojado sin sentir enojo, como tener un casco de motociclista y percibir mis sentimientos como si no fuera parte de mi, el "me vale un comino", lo que siento y los sentimientos de las personas a mi alrededor, expresión de cara seria, sin expresión de emociones ni empatía a las personas alrededor.
+
+    - Ejemplo: Ánimo neutro, en hacer los quehaceres diarios de la casa, sin sentir felicidad, ni sentir tristeza, como tener impulsión de hacer las cosas sin sentir placer. Mientras barro, limpio y encero toda la casa, sudar mientras limpio, escuchar audios del curso del libro Interchange 4ta Edición en Inglés, escuchar música en Youtube de Google, ir al Ebáis por medicamentos, escuchar la radio, mientras ordenó mi ropa de mi habitación, cocinar arroz y cocinar en el microondas un maruchan de queso.
+
+
+35. Alucinaciones Hipnagógicas.
+
+    - Alucinaciones Hipnagógica, mientras iniciaba durmiendo. Es cuando uno se queda dormido, por unos segundos o minutos, luego se despierta y uno recuerda cosas que pasaron en algún momento del día, donde se hace la pregunta: ¿Ese "secreto" pasó y hasta ahora me doy cuenta?.
+
+    - Ejemplo: Escucho una voz de una mujer que me dice, "¿Hay un chiquito desaparecido, lo ha visto?". Sonido pasivo de "tlak" en la ventana, en el instante que escucho "lo ha visto", siento un escalofrío de nervios en el mismo instante del sonido en la ventana. Despierto de golpe. Después de ver minutos antes de dormir, videos de Youtube de la Fuerza Pública de Costa Rica, en el juego GTA, de la serie Un Paco en la Finca, mientras veía gente jugando juegos de trenes, Train World y escuchaba la radio.
+
+
+36. Ambivalencia.
+
+    - Me siento en un estado mental que no se si es ira, enojo, odio, nervios, llorar, reir.
+
+    - Me da lo mismo las cosas, sorprendido, felicidad, depresión, no quiero hablar con papá, ansiedad.
+
+    - No me sorprende las cosas, ironía, sentimiento frio, rumiar.
+
+    - Con ganas de escuchar la radio hablando de mi, a la vez no quiero, quiero estar sólo, a la vez no quiero.
+
+
+37. Despertar de golpe asustado.
+
+    - Rara veces, casi nunca, despierto de golpe, después de estar durmiendo varias horas, en un estado asustado con hipertensión reactiva.
+
+    - Rara vez, como si me despertara en la noche y algo o alguien me duerme de nuevo sin recordar, luego despierto de golpe recordando imágenes rápidas de mi alrededor, de que ya me había despertado horas antes, pero no estaba del todo despierto, es como despertar recordando que desperté pero sin ser consciente, zombie hipnotizado, también por el uso de sonidos pasivos "tlak" en el dormitorio.
 
 
 
