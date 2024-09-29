@@ -906,11 +906,11 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Odio y forma de represión por parte de algunas personas, usando medios de comunicación costarricenses, televisoras y radios del país, para imponer como forma autoridad contra mi, por cualquier intento de mi persona por decir "no", no quiero.
 
-    - Usando mi propia información contra mi, como forma de venganza usando esos sistemas y crear odio, hipocresía por 12 años, desde el año 2012, durante la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
+    - Usando mi propia información contra mi, como forma de venganza usando esos sistemas y crear odio, hipocresía por 12 años al año 2024, desde el año 2012, durante la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica.
 
     - Volviendo a ejecutar ese sistema de espionaje, en los años 2015, 2016, 2017, mientras estaba trabajando en empleos formales y con cuotas patronales registrados ante la CCSS - Caja Costarricense del Seguro Social.
 
-    - Algunos sistemas fueron planeados y ejecutados, después del segundo internamiento contra voluntad en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, en 2017, con diagnóstico de Esquizofrenia Paranoide, las demandas judiciales en la policía OIJ - Organismo de Investigación Judicial, por violencia doméstica y demanda judicial de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, contra mi persona.
+    - Algunos sistemas fueron planeados y ejecutados, después del segundo internamiento, contra voluntad en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, en el año 2017, con diagnóstico de Esquizofrenia Paranoide, las demandas judiciales en la policía OIJ - Organismo de Investigación Judicial, por violencia doméstica y demanda judicial de la universidad Tec de Cartago - Instituto Tecnológico de Costa Rica, contra mi persona.
 
     - Algunos sistemas en marcha, Sistemas de Inteligencia Artificial, después de mi tercer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, por Esquizofrenia Paranoide, en el año 2020. Por supuesto, que es odio y no es amor, hipocresía, narcisismo, venganza, la Ley del más Fuerte, drogas, corrupción, sicariato, para sus películas, religión y niño, resultados reflejado en la ola de violencia y criminalidad de Costa Rica, desde el año 2023.
 
@@ -919,7 +919,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Escalofríos, cuando estoy muy enojado y siento que me hierve la sangre de cólera, contra algunas personas y durante las noticias, Noticias Repretel - Canal 6.
 
-    - Cuando me gusta algún tema, por ejemplo: cuando veo videos de persecución de carros por la policía.
+    - Cuando me gusta algún tema, por ejemplo: cuando veo videos de persecución de carros con la policía.
 
 
 24. Tic nervioso en la columna hacia las 2 Piernas.
@@ -929,7 +929,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
     - Uso de pastillas / tabletas de Ácido Fólico, cuando estaba estudiando en la Escuela Finca Guararí, año 2004, también como forma de medicamento para depresión infantil.
 
 
-25. Actividad en nervios de intestino del estómago y diarrea.
+25. Actividad en nervios del intestino en el estómago y diarrea.
 
     - Algunas veces, siento como si algo me activa un nervio del intestino grueso. Me causa diarrea y gases muy olorosos.
 
@@ -969,7 +969,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 30. Vision de túnel con hipertensión reactiva y desrealización.
 
-    - Durante el efecto de las inyecciones de drogas disociativas en las madrugadas y noches, para ese día.
+    - Durante el efecto de las inyecciones de drogas disociativas, en las madrugadas y noches, para ese día.
 
     - Desrealización mientras salgo a caminar por la comunidad, como ejercicio físico, con mi mamá.
 
@@ -984,7 +984,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Algunas veces al coger objetos como vasos, escobas, palo pisos / trapeador, o al escribir mensajes en mi celular, Smartphone Android personal, me siento impulsivo, con movimientos rápidos en piernas y brazos, algunos movimientos provocan choque con otros objetos cercanos, o mal movimiento quebrando vasos, o tener que reescribir palabras en mensajes enviados.
 
-    - Cuando me siento acelerado, haciendo la barba en el baño, a la misma vez que estoy analizando un recuerdo, tipo rumiar, disminuye mi capacidad de tener mi atención en 2 cosas a la vez, memoria de trabajo haciendo la barba con rasurador presto-barba y jabón. Mi memoria temporal analizando varias perspectivas de un tema, mi atención hacía objetos. Calculando mal mis movimientos de manos con los objetos y algunos momentos provocando cortadas en mi cara.
+    - Cuando me siento acelerado, haciendo la barba en el baño, a la misma vez que estoy analizando un recuerdo, tipo rumiar, disminuye mi capacidad de tener mi atención en 2 cosas a la vez, memoria de trabajo haciendo la barba, con rasurador presto-barba y jabón. Mi memoria temporal analizando varias perspectivas de un tema, mi atención hacía objetos. Calculando mal mis movimientos de manos con los objetos y algunos momentos provocando cortadas en mi cara.
 
     - Cuando me baño, mientras estoy lavando mis pies, en la ducha, a la misma vez que estoy analizando un tema en mi memoria, disminuye mi capacidad de equilibrio, balanceando tipo mareo, mientras un pie no toca el suelo.
 
@@ -1002,7 +1002,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Cada cierta cantidad de días, amanezco con una vejiga grande y única en la lengua, o una única vejiga en un labio por dentro de la boca, de 3 milímetros de ancho. Me dura hasta por 4 días seguidos.
 
-    - Por más vasos de agua que beba varias veces durante el día, no se me quita, se reduce el malestar y me incomoda hablar.
+    - Por más vasos de agua que beba, varias veces durante el día, no se me quita, se reduce el malestar y me incomoda al hablar.
 
     - Si no tomo agua, en el centro del labio inferior de la boca, por fuera, me molesta como si se me está haciendo una cortada, por exceso de calor en el estómago, a veces siento que se está poniendo de color rojo oscuro a morado, ocupo estar tomando agua por varios días seguidos.
 
@@ -1011,7 +1011,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - No siento felicidad, pero tampoco siento tristeza, es como estar enojado sin sentir enojo, como tener un casco de motociclista y percibir mis sentimientos como si no fuera parte de mi, el "me vale un comino", lo que siento y los sentimientos de las personas a mi alrededor, expresión de cara seria, sin expresión de emociones ni empatía a las personas alrededor.
 
-    - Ejemplo: Ánimo neutro, en hacer los quehaceres diarios de la casa, sin sentir felicidad, ni sentir tristeza, como tener impulsión de hacer las cosas sin sentir placer. Mientras barro, limpio y encero toda la casa, sudar mientras limpio, escuchar audios del curso del libro Interchange 4ta Edición en Inglés, escuchar música en Youtube de Google, ir al Ebáis por medicamentos, escuchar la radio, mientras ordenó mi ropa de mi habitación, cocinar arroz y cocinar en el microondas un maruchan de queso.
+    - Ejemplo: Ánimo neutro, en hacer los quehaceres diarios de la casa, sin sentir felicidad, ni sentir tristeza, como tener impulsión de hacer las cosas sin sentir placer. Mientras barro, limpio y encero toda la casa, sudar mientras limpio, escuchar audios del curso del libro Interchange 4ta Edición en Inglés, escuchar música en Youtube de Google, ir al Ebáis por medicamentos, escuchar la radio, mientras ordeno mi ropa de mi habitación, cocinar arroz y cocinar en el microondas un maruchan de queso.
 
 
 35. Alucinaciones Hipnagógicas.
@@ -1034,13 +1034,12 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 37. Despertar de golpe asustado.
 
-    - Rara veces, casi nunca, despierto de golpe, después de estar durmiendo varias horas, en un estado asustado con hipertensión reactiva.
+    - Rara veces, casi nunca, despierto de golpe, después de estar durmiendo varias horas, en un estado asustado durante el sueño, con hipertensión reactiva.
 
-    - Rara vez, como si me despertara en la noche y algo o alguien me duerme de nuevo sin recordar, luego despierto de golpe recordando imágenes rápidas de mi alrededor, de que ya me había despertado horas antes, pero no estaba del todo despierto, es como despertar recordando que desperté pero sin ser consciente, zombie hipnotizado, también por el uso de sonidos pasivos "tlak" en el dormitorio.
+    - Rara vez, como si me despertara en la noche y algo o alguien me duerme de nuevo, sin recordar eso, luego despierto de golpe recordando imágenes rápidas de mi alrededor, de que ya me había despertado horas antes, pero no estaba del todo despierto, es como despertar recordando que desperté pero sin ser consciente, zombie hipnotizado, también por el uso de sonidos pasivos "tlak" en el dormitorio.
 
 
 38. Sensible a los ruidos y agitado nervioso por antipsicótico.
-
 
     - Ejemplo de sensible a los sonidos. Nervioso y tembloroso. También debido a las inyecciones de drogas en las madrugadas y noches.
 
@@ -1070,10 +1069,10 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
     24. Sonido avioneta, pasando en el cielo.
     25. Vecino diciendo "vea".
     26. Sirena de recreo de la escuela.
-    27. Ese día no se escucha sonido de sirena de carro de policía, a lo lejos ni cerca, ni motos de policía cerca.
-    28. Ese día no se escucha sonido de sirena del Centro Cívico por la Paz de Heredia.
-    29. Ese día no se escucha sonidos de disparos de arma de fuego.
-    30. Ese día no se escucha sonidos de sirena carro de ambulancia y bomberos.
+    27. Ese momento del día, no se escucha sonido de sirena de carro de policía, a lo lejos ni cerca, ni motos de policía cerca.
+    28. Ese momento del día, no se escucha sonido de sirena del Centro Cívico por la Paz de Heredia.
+    29. Ese momento del día, no se escucha sonidos de disparos de arma de fuego.
+    30. Ese momento del día, no se escucha sonidos de sirena carro de ambulancia y bomberos.
 
 
 39. Rara vez, calor en las orejas, cuerpo y sensibilidad en venas o arterias en piernas.
@@ -1089,7 +1088,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
     - Al principio de tomar la Difenhidramina Clorhidrato / Benadryl, tenía apnea del sueño.
 
-    - Me quedo dormido, pero me escucho roncando, sonido de crujido en la ventana al mismo momento y despierto de golpe.
+    - Me quedo dormido, pero me escucho roncando, sonido de crujido en la ventana, al mismo momento y despierto de golpe.
 
 
 41. Ganas de vomitar, atarantado y juegos de computadora.
@@ -1120,15 +1119,25 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 ### Universidad Instituto Tecnológico de Costa Rica - Tec de Cartago.
 
 1. Estudiar Bachillerato de Ingeniería en Computación, Plan 409 - Plan 410.
-2. Hackeo de mis dispositivos personales, Smartphone Android, Laptops y Computadoras sin consentimiento y contra voluntad.
-3. Personalidad INFJ-T Abogado, no encuentro beneficios para poner al servicio de otras personas, mis conocimientos donde esas mismas personas, otros y otras con acceso a mis datos por el uso de dispositivos para espíar y dispositivos de registros de electroencefalografía en mi cabeza, van a usar y estan usando esa información para usar contra mi y contra otras personas, con o sin relación directos a mi persona, demostrado y reflejado en la retroalimentación, de las cifras de casos de homicidios y violencia entre los años 2023 y 2024 en Costa Rica y actos de violencia a mi persona en los últimos 2 años, 2023 a 2024 donde realicé denuncia judicial en el OIJ - Organismo de investigación Judicial, interpuesta el 13 de diciembre de 2023, denuncia con una parte parcial de eventos omitiendo detalles, denuncia desestimada por la Policía.
-4. 14 años seguidos por un grupo cuadrilla de mujeres y hombres, radios, televisoras, noticieros de Costa Rica, sonidos pasivos, implicando actos de violencia contra mi persona y otras personas, iniciados durante mis estudios de Contabilidad y Finanzas, en el Colegio Técnico Profesional de Heredia - VOCA Heredia, estudiante del año 2008 a 2010, continuados en la universidad Instituto Tecnológico de Costa Rica, durante mis estudios de Bachillerato en Ingeniería en Computación Plan 409 - Plan 410, estudiante del año 2011 a 2012.
-5. 2017 CAPEMCOL - Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley, por la amenaza de bomba y tiroteo en ese Campus Universitario Instituto Tecnológico de Costa Rica, sede Cartago, personas de las diferentes policías de Costa Rica y del OIJ - Organismo de Investigación Judicial.
-6. Dispositivos utilizados, para joder mi paciencia meses previos a 2017 con orden judicial de internamiento en CAPEMCOL - Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley, segundo internamiento cumplido en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. También por los sucesos de uso de dispositivos de sonidos pasivos y esa cuadrilla de mujeres y hombres para joder, entre los años 2012 y 2013, durante el segundo semestre en el Tec de Cartago en 2012, hasta el primer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, en mayo de 2013.
-7. Mentiras de personas humanas, usando tecnologías de inteligencia artificial para cometer delitos contra mi persona.
-8. Actual 2024, reafirmar mi posición sobre esa universidad por 14 años, día tras día, frente a frente de ese grupo de personas en las calles, negocios y buses, ahora en remoto por uso de dispositivos de cámaras para espiar, en donde es mi domicilio y hackeo de mis dispositivos a toda prioridad.
-9. Considero, las recomendaciones de expertos en temas de Ansiedad y terapias de exposición al trauma, también sobre el Estrés Postraumático, el inicio de mis pródromos de Esquizofrenia Paranoide durante ese tiempo en el Tec de Cartago, cada uno de los 3 internamientos en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres y la falta de apoyo de los policías.
-10. Yo concluyo, volver al Instituto Tecnológico de Costa Rica, sede Cartago, a estudiar y continuar la Carrera Ingeniería en Computación, es continuar la violencia usando mis conocimientos contra las personas que quiero ayudar y contra mi mismo, por parte de un grupo de personas para sus experimentos sociales y con uso de drogas, drogas que nisiquiera sé que son.
+
+2. Hackeo de mis dispositivos personales, Smartphone Android, Laptops y computadoras, sin consentimiento y contra voluntad.
+
+3. Personalidad INFJ-T Abogado, no encuentro beneficios para poner al servicio de otras personas, mis conocimientos, donde esas mismas personas, otros y otras con acceso a mis datos, por el uso de dispositivos para espíar y dispositivos de registros de electroencefalografía en mi cabeza, van a usar y estan usando esa información para usar contra mi y contra otras personas, con o sin relación directos a mi persona, demostrado y reflejado en la retroalimentación, de las cifras de casos de homicidios y violencia entre los años 2023 y 2024 en Costa Rica, actos de violencia a mi persona en los últimos 2 años al 2024, donde realicé denuncia judicial en el OIJ - Organismo de investigación Judicial, interpuesta el 13 de diciembre de 2023, denuncia con una parte parcial de eventos omitiendo detalles, denuncia desestimada por la policía.
+
+4. 14 años seguidos por un grupo cuadrilla de mujeres y hombres, radios, televisoras, noticieros de Costa Rica, sonidos pasivos, implicando actos de violencia contra mi persona y otras personas, iniciados durante mis estudios de Contabilidad y Finanzas, en el Colegio Técnico Profesional de Heredia - VOCA de Heredia, estudiante de los años 2008 a 2010, continuados en la universidad Instituto Tecnológico de Costa Rica, durante mis estudios de Bachillerato en Ingeniería en Computación Plan 409 - Plan 410, estudiante de los años 2011 a 2012.
+
+5. 2017 CAPEMCOL - Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley, por la amenaza de bomba y tiroteo en ese Campus Universitario, Instituto Tecnológico de Costa Rica, sede Cartago, personas de las diferentes policías de Costa Rica y del OIJ - Organismo de Investigación Judicial.
+
+6. Dispositivos utilizados, para joder mi paciencia meses previos a 2017, con orden judicial de internamiento en CAPEMCOL - Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley, segundo internamiento, cumplido en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. También por los sucesos de uso de dispositivos de sonidos pasivos y esa cuadrilla de mujeres y hombres para joder, entre los años 2012 a 2013, durante el segundo semestre en el Tec de Cartago en 2012, hasta el primer internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, en mayo de 2013.
+
+7. Mentiras de personas humanas, usando tecnologías de Sistemas de Inteligencia Artificial, para cometer delitos contra mi persona.
+
+8. Actual 2024, reafirmar mi posición sobre esa universidad por 14 años, día tras día, frente a frente de ese grupo de personas en las calles, negocios y buses, ahora en remoto, por uso de dispositivos de cámaras para espiar, en donde es mi domicilio y hackeo de mis dispositivos a toda prioridad.
+
+9. Considero, las recomendaciones de expertos en temas de ansiedad y terapias de exposición al trauma, también sobre el estrés postraumático, el inicio de mis pródromos de Esquizofrenia Paranoide, durante ese tiempo en el Tec de Cartago, cada uno de los 3 internamientos en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres, y la falta de apoyo de los policías.
+
+10. Yo concluyo, volver al Instituto Tecnológico de Costa Rica, sede Cartago, a estudiar y continuar la Carrera Ingeniería en Computación, es continuar la violencia usando mis conocimientos contra las personas que quiero ayudar y contra mi mismo, por parte de un grupo de personas para sus experimentos sociales y con uso de drogas, drogas que ni siquiera sé que son.
+
 
 ### Grupo de personas involucradas e involucrados.
 
@@ -1143,6 +1152,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
 
 4. Con ayuda de leyes, involucran al grupo 3, personas civiles, que no se relacionan a la policía, utilizando esos sistemas, donde yo concluyo: es la continuación de ese espionaje y violencia que iniciaron ese grupo 2, de cuadrilla de mujeres y hombres de la policía, en ciclos de violencia, varias veces, en 14 años seguidos.
 
+
 ### Acceso a mi dormitorio, cerrar puerta, seguridad, enumerar y listar los +30 dispositivos.
 
 1. Seguridad en mi dormitorio, usando varias formas de cerradura en la puerta y obtener listado de dispositivos para hackear a mi persona.
@@ -1152,41 +1162,42 @@ Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024
    - OIJ. Miércoles, 13 de diciembre de 2023. Demanda interpuesta por mi en el OIJ de Heredia, por hackeo y experimentos de un grupo de personas.
    - Psiquiatría. Miércoles, 17 de enero de 2024 y Jueves, 18 de enero de 2024. Cita con la psiquiatra del Hospital San Vicente de Paúl, en citas de control cada 8 o 6 meses.
    - Fin cerraduras puerta. Martes, 14 de mayo 2024. Fecha de mi cumpleaños.
-   - 5 meses todos dias, cada noche.
+   - Duración. 5 meses todos dias, cada noche, con cerraduras.
 
 3. Objetos de seguridad.
    - Cerradura de llavin.
    - Cerradura de picaporte.
    - Zapatos en la puerta.
-   - Peluches sobre el llavin para detectar movimiento.
+   - Peluches sobre el llavin, para detectar movimiento.
    - Banco de comedor, para hacer ruido.
 
 4. Dispositivos en el dormitorio.
    - Huecos en el marco de la puerta, para meter ganzúa y forzar cerradura de picaporte.
    - Acceso a copia de la llave del llavin de la puerta.
-   - Cámara con alta resolución y fotogramas por segundo en bombillo led blanco, de los que trae circuito integrado, para registrar cada tecla en mis contraseñas, en la laptop estando en el dormitorio.
+   - Cámara con alta resolución y fotogramas por segundo en bombillo led blanco, de los que trae circuito electrónico integrado, para registrar cada tecla en mis contraseñas, en la laptop estando en el dormitorio, también fotografiar, la posición de los objetos de cerraduras, para dejar los objetos como antes y ocultar evidencias.
    - Dispositivos en huecos del cielorraso.
    - Dispositivos en marcos de la ventana.
    - Dispositivos incrustados en paredes del dormitorio.
 
 5. Confirmado, alguien ingresa en las noches y madrugadas, forzando seguros en la puerta, volviendo a colocar las cosas en su lugar, para ocultar evidencia. Existencia de huecos en el cielorraso y puerta.
 
-6. Confirmado, uso de +30 tipos de funcionamiento de dispositivos, dispositivos de cámaras en mi dormitorio y otros dispositivos para hackeo para ataques de día 0.
+6. Confirmado, uso de +30 tipos de funcionamiento de dispositivos, dispositivos de cámaras en mi dormitorio y otros dispositivos, para hackeo para ataques de día 0.
 
 7. Me tomé el medicamento de pastillas / tabletas, cada día, a las dosis que acordé en la cita con la psiquiatra, en la cita de control en enero de 2024. La psiquiatra desconoce el uso de las inyecciones de drogas. Le llevé copia de mi denuncia judicial en el OIJ.
 
-8. Ingreso de personas a mi dormitorio para inyectarme drogas, hackear la laptop, hackear mi celular y libreta personal.
+8. Ingreso de personas a mi dormitorio para inyectarme drogas, hackear la laptop, hackear mi celular y acceso a información de mi libreta personal.
 
 9. No tube brote psicótico, no me dejaba a los experimentos con drogas y experimentos sociales, para los intereses de un grupo de personas, en esos 5 meses seguidos, asi enumerar y listar los +30 dispositivos para joder.
 
-### De niño 2004 a 2006, sonido tlak y rasguños de cucaracha, cuerda de guitarra o tambor vibrante.
+
+### De niño, años 2004 a 2006, sonido tlak y rasguños de cucaracha, cuerda de guitarra o tambor vibrante.
 
 1. Entre los años 2004 a 2006, escuchaba sonidos parecidos que me recuerdan a los sonidos tlak y rasguños, tipo cucaracha rasguñando la madera, en la mesa, mientras estudiaba entre los años 2004 a 2006. Al irme quedando dormido escuchaba ese sonido y me despertaba mientras estudiaba en la noche, para los exámenes de la Escuela Finca Guararí del año 2004 y del colegio Liceo Los Lagos de los años 2005 a 2007, no preciso recuerdo de esos sonidos durante mis estudios en el VOCA de Heredia - Colegio Técnico Profesional de Heredia de los años 2008 a 2010.
 
-2. Estimo que en el año 2004, a mis 12 años de edad, durante las noches, alguna persona usaba un juguete mío o de mis hermanos, o uno de los tarros de pintura almacenados arriba del clóset en mi dormitorio, para hacer un único y muy fuerte, sonido de vibración de cuerda de guitarra con un juguete con baterías que tenía, o golpe de tambor vibrante con los tarros de pintura vacíos, para despertarme y causarme pánico, hasta quedarme dormido escondido debajo de las cobijas, no me parece que había una rata o ratón en el clóset para hacer ese sonido.
+2. Estimo que en el año 2004, a mis 12 años de edad, durante las noches, alguna persona usaba un juguete mío o de mis hermanos, o uno de los tarros de pintura almacenados arriba del clóset en mi dormitorio, para hacer un único y muy fuerte, sonido de vibración de cuerda de guitarra con un juguete con baterías que tenía, o golpe de tambor vibrante con los tarros de pintura vacíos, para despertarme y causarme pánico, hasta quedarme dormido escondido debajo de las cobijas, no me parece que había una rata o ratón en el clóset, para hacer ese sonido.
 
 3. En el año 2004, durante mi último año de ser estudiante de 6to grado de la Escuela Finca Guararí, tube depresión y estaba en control con medicamentos, un medicamento fue Ácido Fólico. En el Hospital México, en la Uruca, me hicieron un TAG - Resonancia Magnética, tenía citas de control en ese hospital. Además, tenía citas con una psicóloga llamada Marcela en la escuela, ya que estaba teniendo problemas sexuales en mis comportamientos y depresión.
 
-4. En el año 2006 a mis 14 años, fue la fecha internamiento de mi papá por intento de suicidio, bebiendo veneno para matar cucarachas, internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres entre el 22/03/2006 al 11/04/2006.
+4. En el año 2006 a mis 14 años, fue la fecha internamiento de mi papá, por intento de suicidio, bebiendo veneno para matar cucarachas, internamiento en el Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres entre el 22/03/2006 al 11/04/2006.
 
 5. En el año 2004, tube problema en la Escuela Finca Guararí, durante el exámen de Prueba Nacional Estandarizada de Matemáticas, donde fui el último estudiante en salir del aula, la profesora notó que me balanceaba con mucha ansiedad en el pupitre y me dio como 15 respuestas que me faltaba, estaba en crisis.
