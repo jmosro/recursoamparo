@@ -1,6 +1,6 @@
 # Recurso de Amparo Borrador - Listado de hechos
 
-Detallo listado de acontecimientos sucedidos entre los años 2010 al 30-sep-2024.
+Detallo listado de acontecimientos sucedidos entre los años 2004 al 30-sep-2024.
 
 
 ## Parte 1. Medicamentos Epicrisis.
