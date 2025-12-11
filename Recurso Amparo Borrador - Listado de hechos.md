@@ -30,19 +30,52 @@ Detallo listado de acontecimientos sucedidos entre los años 2004 al 30-sep-2024
     - 💊 1. Biperideno Clorhidrato, aproximado entre, 3 a 4 tabletas/pastillas de 2 mg cada una. Anticolinérgico, contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
 
 ### Segundo internamiento.
-1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley (CAPEMCOL).
-2. Uso de policía, OIJ - Organismo de Investigación Judicial.
-3. Aproximado, 3 días en la UCI - Unidad de Cuidados Intensivos.
+1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Orden Judicial para internamiento en, Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley (CAPEMCOL).
+2. Internamiento involuntario. Uso de policía, OIJ - Organismo de Investigación Judicial.
+3. Aproximado, 2 días en la UCI - Unidad de Cuidados Intensivos o UTI - Unidad de Tratamiento Intensivo.
 4. Fecha ingreso: 25 mayo 2017.
 5. Fecha egreso: 10 agosto 2017.
-6. Diagnóstico: Esquizofrenia Paranoide.
-7. Uso de TEC - Terapia Electroconvulsiva. 6 veces de sesión / días.
-8. Medicamentos en epicrisis.
-    - Trifluoperazina 20 mg VO HS. Antipsicótico de primera generación.
-    - Decanoato de Flufenazina 2 cc IM. Antipsicótico de primera generación.
-    - Lorazepam 1 mg VO BID. Benzodiacepina, para dormir, 2 veces al día.
-9. Otros medicamentos en citas de control psiquiatría.
-    - Biperideno Clorhidrato 4 tabletas/pastillas de 2 mg cada una. Anticolinérgico, contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
+6. Edad durante internamiento.
+    - Después de 2 semanas de mi cumpleaños.
+    - 25 años edad. Mayo 2017.
+7. Diagnóstico: Esquizofrenia Paranoide.
+
+8. Medicamentos durante internamiento.
+[Unidad Terapia Intensiva - UTI]
+    - 💉 1. Prometazina IM STAT cada 8h, total 3 veces.
+    - 💉 2. Haldol / Haloperidol IM STAT cada 8h, total 3 veces.
+    - 💊 3. Trifluoperazina 10 mg HS VO.
+    - 💊 4. Propanolol 20 mg BID.
+    - 💊 5. Benadryl / Difenhidramina Clorhidrato 50 mg HIS VO.
+    - 💊 6. Lorazepam 1 mg HS VO.
+[Medicamentos - Pabellón]
+    - 💊 1. Lorazepam 1 mg HS VO.
+    - 💊 2. Lorazepam 1 mg BID VO.
+    - 💊 3. Benadryl / Difenhidramina Clorhidrato 50 mg HS VO.
+    - 💊 4. Trifluoperazina 10 mg HS VO.
+    - 💊 5. Trifluoperazina 15 mg HS VO.
+    - 💊 6. Trifluoperazina 20 mg HS VO.
+    - 💉 7. Decanoato Flufenazina 1 cc IM STAT.
+    - 💉 8. Decanoato Flufenazina 2 cc IM STAT.
+[Terapia Electroconvulsiva - TEC]
+    - 💉 1. Voltaren 75 mg IM STAT.
+    - 💉 2. Plasil 1 Ampolla en 20 cc SF IV STAT.
+    - 💊 3. Paracetamol 1 gr VO STAT.
+    - 🪖 TEC # 1. Fecha. 18-jul-2017.
+    - 🪖 TEC # 2. Fecha. 19-jul-2017. Arritmia Sinusal Corazón.
+    - 🪖 TEC # 2. Fecha. 24-jul-2017. 9:00 am. Cita Ecocardiograma. Hospital de Heredia. Insuficiencia Mitral Leve.
+    - 🪖 TEC # 3. Fecha. 01-ago-2017.
+    - 🪖 TEC # 4. Fecha. 03-ago-2017.
+    - 🪖 TEC # 5. Fecha. 07-ago-2017.
+    - 🪖 TEC # 6. Fecha. 09-ago-2017.
+
+9. Egreso. Medicamentos en epicrisis.
+    - 💊 1. Trifluoperazina 20 mg HS VO. Antipsicótico de primera generación.
+    - 💉 2. Decanoato de Flufenazina 2 cc IM. Antipsicótico de primera generación.
+    - 💊 3. Lorazepam 1 mg BID VO. Benzodiacepina, para dormir, 2 veces al día.
+
+10. Otros medicamentos en citas de control psiquiatría.
+    - 💊 1. Biperideno Clorhidrato, aproximado entre, 3 a 4 tabletas/pastillas de 2 mg cada una. Anticolinérgico, contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
 
 ### Tercer internamiento.
 1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
