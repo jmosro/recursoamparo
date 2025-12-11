@@ -3,20 +3,31 @@
 Detallo listado de acontecimientos sucedidos entre los años 2004 al 30-sep-2024.
 
 
-## Parte 1. Medicamentos Epicrisis.
+## Parte 1. Medicamentos Expediente.
 
 ### Primer internamiento.
 1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
-2. Uso de policía, Fuerza Pública.
-3. Aproximado, 2 días en la UCI - Unidad de Cuidados Intensivos.
+2. Internamiento involuntario. Uso de policía, Fuerza Pública.
+3. Aproximado, 2 días en la UCI - Unidad de Cuidados Intensivos o UTI - Unidad de Tratamiento Intensivo.
 4. Fecha ingreso: 12 mayo 2013.
 5. Fecha egreso: 07 junio 2013.
-6. Diagnóstico: Esquizofrenia Paranoide.
-7. Medicamentos en epicrisis.
-    - Trifluoperazina 10 mg VO HS.  Antipsicótico de primera generación.
-    - Difenhidramina 50 mg VO HS. Antihistamínico, para dormir.
-8. Otros medicamentos en citas de control psiquiatría.
-    - Biperideno Clorhidrato 4 tabletas/pastillas de 2 mg cada una. Anticolinérgico, contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
+6. Edad durante internamiento.
+    - Cumpleaños durante el internamiento.
+    - 20 años y 21 años edad. Mayo 2013.
+7. Diagnóstico: Esquizofrenia Paranoide.
+
+8. Medicamentos durante internamiento.
+[Medicamentos - Pabellón]
+    - 💊 1. Trifluoperazina 5 mg HS VO.
+    - 💊 2. Trifluoperazina 10 mg HS VO.
+    - 💊 3. Benadryl / Difenhidramina Clorhidrato 50 mg HS VO.
+
+9. Egreso. Medicamentos en epicrisis.
+    - 💊 1. Trifluoperazina 10 mg HS VO. Antipsicótico de primera generación.
+    - 💊 2. Difenhidramina Clorhidrato 50 mg HS VO. Antihistamínico, para dormir.
+
+10. Otros medicamentos en citas de control psiquiatría.
+    - 💊 1. Biperideno Clorhidrato, aproximado entre, 3 a 4 tabletas/pastillas de 2 mg cada una. Anticolinérgico, contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
 
 ### Segundo internamiento.
 1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Centro de Atención a Personas con Enfermedad Mental en Conflicto con la Ley (CAPEMCOL).
