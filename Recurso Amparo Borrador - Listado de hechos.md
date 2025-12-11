@@ -78,23 +78,44 @@ Detallo listado de acontecimientos sucedidos entre los años 2004 al 30-sep-2024
     - 💊 1. Biperideno Clorhidrato, aproximado entre, 3 a 4 tabletas/pastillas de 2 mg cada una. Anticolinérgico, contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
 
 ### Tercer internamiento.
-1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres.
-2. Sin uso de la policía.
-3. Aproximado, 2 días en la UCI - Unidad de Cuidados Intensivos.
+1. Hospital Nacional Psiquiátrico Manuel Antonio Chapuí y Torres. Ahora llamado al año 2020: Hospital Nacional de Salud Mental Manuel Antonio Chapuí y Torres.
+2. Internamiento voluntario. Sin uso policías. Sin usar policías de la Fuerza Pública 2013, ni OIJ 2017. Sin uso de la policía con uniforme ni carros de policías, para el día internamiento. Uso de personas relacionadas a las policías, de años anteriores y otros interesados, meses, semanas, y días antes del internamiento.
+3. Aproximado, 2 días en la UCI - Unidad de Cuidados Intensivos o UTI - Unidad de Tratamiento Intensivo.
 4. Fecha ingreso: 18 marzo 2020.
-5. Fecha egreso: 30 marzo 2020.
-6. Diagnóstico: Esquizofrenia Paranoide.
-7. Medicamentos en epicrisis.
-    - Risperidona 4 mg VO HS. Antipsicótico segunda generación.
-    - Difenhidramina 50 mg VO BID. Antihistamínico, para dormir, 2 veces al día.
-8. Medicamentos durante el internamiento.
-    - Inyección intramuscular de Haloperidol sólo por 3 días seguidos, cada día. 2 días de los 3 días, uso de inyección antihistamina para contrarrestar fuerte agitación nerviosa por el antipsicótico Haloperidol. No está en documento de referencia de epicrisis, desconozco las dosis. Antipsicótico de primera generación.
-    - Uso por unos días de pastillas/tabletas Trifluoperazina. No está en documento de referencia de epicrisis, desconozco las dosis. Antipsicótico de primera generación.
-9. Otros medicamentos en citas de control psiquiatría.
-    - Biperideno Hidrocloruro 2 tabletas/pastillas de 2 mg cada una. Anticolinérgico, contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
-10. Otros medicamentos sin especificar.
-    - Uso de otros medicamentos drogas sin detallar nombres, inyectados en las madrugadas y noches.
-    - Uso de otros medicamentos drogas sin detallar nombres, en tabletas/pastillas de cada mes, dentro de Risperidona, Biperideno y Difenhidramina.
+5. Fecha egreso: 31 marzo 2020.
+6. Edad durante internamiento.
+    - Durante Pandemia COVID 19 - Coronavirus, primeros casos en Costa Rica.
+    - 27 años edad. Marzo 2020.
+7. Diagnóstico: Esquizofrenia Paranoide.
+
+8. Medicamentos durante internamiento.
+[Medicamentos - Pabellón]
+    - 💊 1. Trifluoperazina 10 mg HS VO, por 7 días.
+    - 💊 2. Risperidona 1 mg HS VO.
+    - 💊 3. Risperidona 2 mg HS VO.
+    - 💊 4. Risperidona 4 mg HS VO.
+    - 💊 5. Benadryl / Difenhidramina Clorhidrato 50 mg HS VO.
+    - 💊 6. Benadryl / Difenhidramina Clorhidrato 50 mg BID HS VO.
+    - 💉 7. Haldol / Haloperidol 5 mg/ml Ampolla 1 ml IM 10 mg, por 3 días. 2 días de los 3 días, uso de inyección antihistamínico, para contrarrestar fuerte agitación nerviosa, por el antipsicótico Haloperidol.
+    - 💉 8. Decanoato Flufenazina 25 mg/ml Ampolla 1 ml 2 cc IM, por 1 día.
+    - 💉 9. Dimenhidrinato 5% Ampolla 5 ml IM 2 cc HS, no se requirió.
+    - 💉 10. Clorfenamina Maleato 1% 10 mg/ml Ampolla 1 ml IM, por 3 días.
+
+9. Egreso. Medicamentos en epicrisis.
+   - 💊 1. Risperidona 4 mg HS VO. Antipsicótico segunda generación.
+   - 💊 2. Difenhidramina 50 mg BID VO. Antihistamínico, para dormir, 2 veces al día.
+
+10. Otros medicamentos en citas de control psiquiatría.
+    - 💊 1. Biperideno Hidrocloruro, 3 tabletas/pastillas de 2 mg cada una. Anticolinérgico, contrarrestar efectos secundarios tipo extrapiramidales del antipsicótico.
+    - 💉 2. Uso de otros medicamentos drogas sin detallar nombres, inyectados en las madrugadas y noches.
+    - 💊 3. Uso de otros medicamentos drogas sin detallar nombres, en tabletas/pastillas de cada mes, contenido en Risperidona, Biperideno Hidrocloruro y Difenhidramina Clorhidrato.
+    - [💊💉 2020] 31-mar-2020. Antipsicótico. 💊 Risperidona 4 mg.
+    - [💊💉 2023] 05-feb-2023. Antipsicótico. 💊 Risperidona 5 mg. +1 mg. 💊 Biperideno Hidrocloruro 4 mg.
+    - [💊💉 2023] 28-feb-2023. Antipsicótico. 💊 Risperidona 4 mg. -1 mg. 💊 Biperideno Hidrocloruro 4 mg. 💊 Difenhidramina Clorhidrato 50 mg.
+    - [💊💉 2023] 16-may-2023. Antipsicótico. 💊 Risperidona 3 mg. -1 mg. 💊 Biperideno Hidrocloruro 4 mg. 💊 Difenhidramina Clorhidrato 50 mg.
+    - [💊💉 2024] 17-ene-2024. Antipsicótico. 💊 Risperidona 4 mg. +1 mg. 💊 Biperideno Hidrocloruro 4 mg. 💊 Difenhidramina Clorhidrato 50 mg.
+    - [💊💉 2024] 30-ago-2024. Antipsicótico. 💊 Risperidona 5 mg. +1 mg. 💊 Biperideno Hidrocloruro 4 mg. 💊 Difenhidramina Clorhidrato 50 mg.
+    - [💊💉 2025] 17-jun-2025. Antipsicótico. 💊 Risperidona 5 mg. Igual dosis. 💊 Biperideno Hidrocloruro 6 mg. +2 mg. 💊 Difenhidramina Clorhidrato 50 mg.
 
 
 ## Parte 2. Denuncias Judiciales. Expedientes Policía. A favor o en contra de mi persona.
