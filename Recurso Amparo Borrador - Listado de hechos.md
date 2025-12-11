@@ -17,7 +17,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2004 al 30-sep-2024
 7. Diagnóstico: Esquizofrenia Paranoide.
 
 8. Medicamentos durante internamiento.
-[Medicamentos - Pabellón]
+    - [Medicamentos - Pabellón]
     - 💊 1. Trifluoperazina 5 mg HS VO.
     - 💊 2. Trifluoperazina 10 mg HS VO.
     - 💊 3. Benadryl / Difenhidramina Clorhidrato 50 mg HS VO.
@@ -41,14 +41,14 @@ Detallo listado de acontecimientos sucedidos entre los años 2004 al 30-sep-2024
 7. Diagnóstico: Esquizofrenia Paranoide.
 
 8. Medicamentos durante internamiento.
-[Unidad Terapia Intensiva - UTI]
+    - [Unidad Terapia Intensiva - UTI]
     - 💉 1. Prometazina IM STAT cada 8h, total 3 veces.
     - 💉 2. Haldol / Haloperidol IM STAT cada 8h, total 3 veces.
     - 💊 3. Trifluoperazina 10 mg HS VO.
     - 💊 4. Propanolol 20 mg BID.
     - 💊 5. Benadryl / Difenhidramina Clorhidrato 50 mg HIS VO.
     - 💊 6. Lorazepam 1 mg HS VO.
-[Medicamentos - Pabellón]
+    - [Medicamentos - Pabellón]
     - 💊 1. Lorazepam 1 mg HS VO.
     - 💊 2. Lorazepam 1 mg BID VO.
     - 💊 3. Benadryl / Difenhidramina Clorhidrato 50 mg HS VO.
@@ -57,7 +57,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2004 al 30-sep-2024
     - 💊 6. Trifluoperazina 20 mg HS VO.
     - 💉 7. Decanoato Flufenazina 1 cc IM STAT.
     - 💉 8. Decanoato Flufenazina 2 cc IM STAT.
-[Terapia Electroconvulsiva - TEC]
+    - [Terapia Electroconvulsiva - TEC]
     - 💉 1. Voltaren 75 mg IM STAT.
     - 💉 2. Plasil 1 Ampolla en 20 cc SF IV STAT.
     - 💊 3. Paracetamol 1 gr VO STAT.
@@ -89,7 +89,7 @@ Detallo listado de acontecimientos sucedidos entre los años 2004 al 30-sep-2024
 7. Diagnóstico: Esquizofrenia Paranoide.
 
 8. Medicamentos durante internamiento.
-[Medicamentos - Pabellón]
+    - [Medicamentos - Pabellón]
     - 💊 1. Trifluoperazina 10 mg HS VO, por 7 días.
     - 💊 2. Risperidona 1 mg HS VO.
     - 💊 3. Risperidona 2 mg HS VO.
