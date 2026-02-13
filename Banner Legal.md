@@ -27,7 +27,7 @@ Se ** PROHÍBEN TERMINANTEMENTE ** el uso de esta información para:
 
 Esta declaración se extiende a cualquier entidad, persona, grupo, corporación, o sistema automatizado, que acceda o intente acceder a la información de este Sistema, sin el consentimiento informado, explícito y documentado al usuario propietario de la cuenta registrada en el Sistema Operativo.
 
-Cualquier uso de la información de este Sistema que contravenga esta declaración, será considerado una ** violación de la privacidad y una base para acciones legales y judiciales**.
+Cualquier uso de la información de este Sistema que contravenga esta declaración, será considerado una ** violación de la privacidad y una base para acciones legales y judiciales **.
 
 ATENCIÓN: EL USO NO AUTORIZADO DE ESTE SISTEMA Y SU INFORMACIÓN CONSTITUYE UN DELITO.
 FECHA DE LA DECLARACIÓN: MARTES, 14 DE OCTUBRE DE 2025.
