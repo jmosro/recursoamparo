@@ -23,7 +23,7 @@ Se ** PROHÍBEN TERMINANTEMENTE ** el uso de esta información para:
 
 4.3. Por medio de instalando programas en el Sistema Operativo, vulnerando la seguridad de credenciales del usuario, usando los sistemas persecutores y dispositivos persecutores, a toda costa y prioridad, sin autorización explícita ni documentada y sin ser programas instalados por el usuario propietario de la cuenta del Sistema Operativo.
 
-4.4. Nota 1: Referente a Google, sus productos, publicidad u otros: Imposición absoluta, contra voluntad, a favor de hacer violencia mediática y otros tipos de violencia, experimentos sociales y uso de drogas como justificante los diferentes tipos de violencia, psicológicos y psiquiátricos, al usuario propietario de la cuenta objetivo en el Sistema Operativo. Violencia es Violencia, por más drogas a usadas, usando o a usar, sigue siendo violencia.
+4.4. Nota 1: Referente a Google, sus productos, publicidad u otros: Imposición absoluta, contra voluntad, a favor de hacer violencia mediática y otros tipos de violencia, experimentos sociales y uso de drogas como justificante los diferentes tipos de violencia, psicológicos y psiquiátricos, al usuario propietario de la cuenta objetivo en el Sistema Operativo. Violencia es Violencia, por más drogas usadas, usando o a usar, sigue siendo violencia.
 
 4.5. Nota 2: Invasión a la Privacidad y Seguridad Personal, sin implicar el uso del entorno de trabajo de Google, ni la autorización de permisos de usuario en el Sistema Operativo, para el Navegador de Internet "Google Chrome", "Google Chromium", o "Firefox" con motor de búsqueda Google, "Google Authenticator" para Linux y Android como aplicación para agregar protección adicional al Sistema Operativo.
 
